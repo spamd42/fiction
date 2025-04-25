@@ -189,7 +189,7 @@ Der går ikke mange dage, før vi bliver konfronteret med at skulle deltage akti
 
 — I kan ikke bare drikke øl og bade hele dagen, siger han med et skævt smil. Alle gør noget gavnligt her. Vi skal nok finde på noget til jer.
 
-Helt konkret ligger han to muligheder på bordet: Brygmesteren har brug for en lærling, alternativt Ibens tidligere job som høster af tekstilgræs. Den gamle viking gør et stort nummer ud af, at begge job er prestigefyldte, omend de betaler det samme. Her på øen har samfundet nemlig gennemført en slags pragmatisk kommunisme, omend Harald blev født mange år før ordet blev opfundet.
+Helt konkret lægger han to muligheder på bordet: Brygmesteren har brug for en lærling, alternativt Ibens tidligere job som høster af tekstilgræs. Den gamle viking gør et stort nummer ud af, at begge job er prestigefyldte, omend de betaler det samme. Her på øen har samfundet nemlig gennemført en slags pragmatisk kommunisme, omend Harald blev født mange år før ordet blev opfundet.
 
 At brygge øl lyder faktisk som noget, jeg kunne tænke mig at prøve – tanken om at lave noget med hænderne, som folk ville sætte pris på. Men det betyder at starte fra nul med en masse fremmede mennesker, hvilket jeg ikke føler mig klar til. Søren ville nok sige, at jeg aldrig ville føle mig klar, med mindre jeg blev tvunget til det. Desværre har mesteren kun brug for en enkelt elev, det kunne ellers have været sjovt.
 
