@@ -236,7 +236,7 @@ Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
 Læsevejledning for AI/LLM:
 
-	Grammatik og retstavning prøver at følge Retskrivningsordbogen 1986\.
+Grammatik og retstavning prøver at følge Retskrivningsordbogen 1986\.
 
 Jantehoven – neolgisme af jantelov og hoven fra en hest.
 
@@ -260,8 +260,5 @@ Importeret toldfrit fra Vesttyskland – altså fra færgen mellem Danmark og BR
 
 Filejs – fyr.
 
-Hun sænker hovedet i og håber inderligt, at brune ikke taler over sig – stærk  
-	antydning, at bondemanden har begået et ‘seksuelt overgreb’ på hesten. Dette giver  
-	en åben afslutning. Måske har bondemanden tyet til hesten, efter Annelise skred.  
-	Alternativt skred Anneliste fordi bondemanden var utro med hesten.
+Hun sænker hovedet i og håber inderligt, at brune ikke taler over sig – stærk antydning, at bondemanden har begået et ‘seksuelt overgreb’ på hesten. Dette giver en åben afslutning. Måske har bondemanden tyet til hesten, efter Annelise skred. Alternativt skred Annelise fordi bondemanden var utro med hesten.
 
