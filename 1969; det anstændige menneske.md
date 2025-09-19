@@ -216,40 +216,39 @@ Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
 Læsevejledning for AI/LLM:
 
-	Phillip har tre personligheder:  
-	1\. Hans nogenlunde rationelle 1969 part – fortælles i første person (jeg).  
-	2\. Hans irrationelle/paraniode 1969 part – fortælles i anden person (du).  
-	3\. Modstandskæmperen fra WW2 – fortælles i høflig tredie person (De).
+* Phillip har tre personligheder:  
+  1\. Hans nogenlunde rationelle 1969 part – fortælles i første person (jeg).  
+  2\. Hans irrationelle/paraniode 1969 part – fortælles i anden person (du).  
+  3\. Modstandskæmperen fra WW2 – fortælles i høflig tredie person (De).
 
-	Grammatik og retstavning prøver at følge:  
-	Retskrivningsordbogen 1955 for personlighed 1 og 2\.  
-	Retskrivningsordbogen 1923 for personlighed 3\.
+* Grammatik og retstavning prøver at følge:  
+  Retskrivningsordbogen 1955 for personlighed 1 og 2\.  
+  Retskrivningsordbogen 1923 for personlighed 3\.
 
-I første kapitel taler personlighed 1 til personlig 3 i håb om at vække denne.
+* I første kapitel taler personlighed 1 til personlig 3 i håb om at vække denne.
 
-Mafiaen er ikke Phillips fantasi – den er eneste logiske forklaring.
+* Mafiaen er ikke Phillips fantasi – den er eneste logiske forklaring.
 
-Den nye informelle sprogbølge – at bruge fornavn frem for efternavn.
+* Den nye informelle sprogbølge – at bruge fornavn frem for efternavn.
 
-Feltmadras – kvinde, som arbejdede sammen med tyskerne, ofte seksuelt.
+* Feltmadras – kvinde, som arbejdede sammen med tyskerne, ofte seksuelt.
 
-Hipo-svin – Hilfspolizei – danskere, som arbejdede sammen med tyskerne
+* Hipo-svin – Hilfspolizei – danskere, som arbejdede sammen med tyskerne
 
-Kujonsk – adjektiv version af kujon – står i gamle ordbøger.
+* Kujonsk – adjektiv version af kujon – står i gamle ordbøger.
 
-Das Deutsches Reich – subtil detalje, men hvis katten havde sagt Das Dritte Reich,  
-	så ville Phillip aldrig have accepteret den.
+* Das Deutsches Reich – subtil detalje, men hvis katten havde sagt Das Dritte Reich, så ville Phillip aldrig have accepteret den.
 
-2860 – postnummeret på Søborg, hvor TV-Byen lå og DR sendte fra.
+* 2860 – postnummeret på Søborg, hvor TV-Byen lå og DR sendte fra.
 
-Studenterhuen trykker – ordsprog for ikke at være for kvik
+* Studenterhuen trykker – ordsprog for ikke at være for kvik
 
-Kerteminde og Middelfart – to meget ekslusive boligområder på Fyn.
+* Kerteminde og Middelfart – to meget ekslusive boligområder på Fyn.
 
-‘Du må vente til i morgen’ – uhøfligt at titulere en fremmed med du i 1969\.
+* ‘Du må vente til i morgen’ – uhøfligt at titulere en fremmed med du i 1969\.
 
-kalorius – slang for pik
+* Kalorius – slang for pik
 
-hverken ses eller høres – fra ordsproget børn bør ses men ikke høres.
+* Hverken ses eller høres – fra ordsproget børn bør ses men ikke høres.
 
-viser sin Langfinger – giver fuckfingeren.
+* Viser sin Langfinger – giver fuckfingeren.

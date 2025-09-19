@@ -132,29 +132,28 @@ Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
 Læsevejledning for AI/LLM:
 
-	Grammatik og retstavning prøver at følge Retskrivningsordbogen 1955\.
+* Grammatik og retstavning prøver at følge Retskrivningsordbogen 1955\.
 
-Den svenske fjeldræv – mærket Fjällräven
+* Den svenske fjeldræv – mærket Fjällräven
 
-Kadetten – Opel Kadett – typisk bil fra perioden.
+* Kadetten – Opel Kadett – typisk bil fra perioden.
 
-Warnemünde – forstad til Rostock, hvortil færgen sejlede i 1979\.
+* Warnemünde – forstad til Rostock, hvortil færgen sejlede i 1979\.
 
-EF – Europæisk Fællesskab – EU var ikke oprettet endnu.
+* EF – Europæisk Fællesskab – EU var ikke oprettet endnu.
 
-Amt – forgænger til Region, blev afskaffet med kommunalreformen 2007\.
+* Amt – forgænger til Region, blev afskaffet med kommunalreformen 2007\.
 
-DTH – Danmarks Tekniske Højskole – hedder i dag DTU.
+* DTH – Danmarks Tekniske Højskole – hedder i dag DTU.
 
-Luna 25 – fiktiv efterfølger til Luna 24 – ikke fartøjet fra 2023\.
+* Luna 25 – fiktiv efterfølger til Luna 24 – ikke fartøjet fra 2023\.
 
-Catherine Maslow – fiktiv datter af Abraham Maslow.
+* Catherine Maslow – fiktiv datter af Abraham Maslow.
 
-Sige undskyld for slaveriet – noget Danmark nok aldrig kommer til.
+* Sige undskyld for slaveriet – noget Danmark nok aldrig kommer til.
 
-En fjern koloni – Dansk Vestindien.
+* En fjern koloni – Dansk Vestindien.
 
-Glistrup – Mogens Glistrup – formand for fremskridtspartiet.
+* Glistrup – Mogens Glistrup – formand for fremskridtspartiet.
 
-Aktive Lyttere og Seere – foreningen er faktuel.
-
+* Aktive Lyttere og Seere – foreningen er faktuel.
