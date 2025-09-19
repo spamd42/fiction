@@ -36,7 +36,7 @@ Giften pumpede rundt i hendes krop, mens lydene fra radioen sendte hendes nerves
 
 Jeg havde sørget for at være optaget af egne opgaver, og ingen havde lagt mærke til det stille skuespil, der havde udspillet sig foran dem i månedsvis. Kassettebåndet fik nærkontakt med en stærk magnet, og colaflasken fik jeg byttet med en, der kun havde gift på ydersiden.
 
-Chefens manglende evne til at opdage det skjulte had i virksomheden, var en fatal fejl, som kostede dyrt. På behørig afstand, igennem min medbragte teaterkikkert, så jeg ham fumle febrilsk og forgæves i egne lommer efter sin mobiltelefon. Parkeringspladsen var tom, og jeg var langt væk, ude af syne. Det var meningsløst for chefen at råbe på hjælp. I stedet kom han en sidste gang i hendes bukser, hvor han flåede hendes telefon ud af sidelommen.
+Chefens manglende evne til at opdage det skjulte had i virksomheden var en fatal fejl, som kostede dyrt. På behørig afstand, igennem min medbragte teaterkikkert, så jeg ham fumle febrilsk og forgæves i egne lommer efter sin mobiltelefon. Parkeringspladsen var tom, og jeg var langt væk, ude af syne. Det var meningsløst for chefen at råbe på hjælp. I stedet kom han en sidste gang i hendes bukser, hvor han flåede hendes telefon ud af sidelommen.
 
 Ambulancen ankom, som forventet, alt for sent. Hun havde ingen chance, men den fragtede hende alligevel til hospitalet. Tja, huslejen er godt nok billigere i Udkantsdanmark, men serviceniveauet er tilsvarende ringe.
 
@@ -102,7 +102,7 @@ I blev godt nok skuffede, da I opdagede, at overvågningskameraet var en souveni
 
 I lader slippe, at ofret var gravid og ved, at I kan få ham, altså chefen, for dobbelt uagtsomt manddrab. Dommeren vil få de hårde briller på, da der er tale om påvirkning af alkohol og sikkert diverse lettere rusmidler. I kan afslutte sagen nemt, det kræver bare, at I ignorerer obduktionsrapporten.
 
-I fortæller ikke hvad den indeholder, men da I kører sagen videre, bliver der stillet nogle ret så personlige spørgsmål. Chefen får dem sikkert direkte og konfrontatorisk, mens de ansatte får dem mere indirekte, som om de skulle være typer, der render med sladder. Elskede han hende? Havde han lovet at forlade konen, men ikke ville alligevel? Kørte han hende ned med vilje? Chefen afviser selvfølgelig, men bryder sammen efter I forlanger en faderskabstest.
+I fortæller ikke hvad den indeholder, men da I kører sagen videre, bliver der stillet nogle ret så personlige spørgsmål. Chefen får dem sikkert direkte og konfrontatorisk, mens de ansatte får dem mere indirekte, som om de skulle være typer, der render med sladder. Elskede han hende? Havde han lovet at forlade konen, men ikke ville alligevel? Kørte han hende ned med vilje? Chefen afviser selvfølgelig, men bryder sammen, efter I forlanger en faderskabstest.
 
 I er stadig ikke tilfredse og holder stadig kortene tæt på kroppen. Jeres strategi bærer ikke frugt, så I prøver at lægge små brødkrummer ud, i håb om, at nogen har set noget, eller at morderen taler over sig
 
@@ -144,3 +144,28 @@ Udgivet: 2023
 
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
+* Grammatik og retstavning prøver at følge Retskrivningsordbogen 1996\.
+
+* De seks afsnit benytter hver sin fortællervinkel, som løber igennem alle tre personer, først i ental, derefter i flertal: jeg, du, han, vi, I, de. Selvom vinklen skifter, er det stadig samme hovedperson fra kapitel ét, som fortæller historien. Han betragter blot omgivelserne. Når der skiftes til den høflige De-form i kapitel seks, taler der direkte til læseren.
+
+* Fortælleren er uskyldig i mord. Ulla er moderen. Fortælleren prøver aktivt at fjerne mistanken fra Ulla for at beskytte hende og i sidste ende overtage gartneriets drift.
+
+* Strutte med attributterne – slang, vise brysterne frem uden bh.
+
+* Empati – moderne version.
+
+* Slæde – slang, bil.
+
+* Udkneppet – slang, udtjent.
+
+* Lars tyndskids mark – fast vending, langt ude på landet.
+
+* Øse – slang, bil.
+
+* Kæp – slang, pik.
+
+* Hvor skabet skal stå – fast vending – at have bukserne på, at betemme.
+
+* Lokumsaftale – aftale under bordet uden skriftlig aftale.
+
+* Skovsnegl – slang, overskæg.
