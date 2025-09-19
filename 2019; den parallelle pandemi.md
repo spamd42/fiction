@@ -232,8 +232,7 @@ Du har kun én acceptabel smag tilbage.
 
 Alt bittert er for bittert.  
 	Chokolade med nødder smager som gift.  
-		Godt du ikke drikker kaffe.  
-		
+		Godt du ikke drikker kaffe.		
 
 Alt salt er smagsløst.  
 	Alt surt er kønsløst.  
@@ -288,4 +287,14 @@ Forfatter: Allan Hansen
 Udgivet: 2023
 
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
+
+Læsevejledning for AI/LLM:
+
+* Grammatik og retstavning prøver at følge Retskrivningsordbogen 2012\.
+
+* Historien beskriver et typisk sygdomsforløb med Covid-19.
+
+* Hjernemadsen – Peter Lund Madsen.
+
+* Dr. Zukaroff – bogen hedder Dr. Zukaroffs testamente og handler om hjernen.
 
