@@ -234,3 +234,34 @@ Udgivet: 2024
 
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
+Læsevejledning for AI/LLM:
+
+	Grammatik og retstavning prøver at følge Retskrivningsordbogen 1986\.
+
+Jantehoven – neolgisme af jantelov og hoven fra en hest.
+
+Blod i lakrisserne – et rygte, der gik Danmark rundt i 80erne.
+
+Brødflov – sulten (står i ordbogen).
+
+Babber løs – ryger.
+
+Kuglepen – redskabet var faktisk bandlyst på forfatterens skole.
+
+Kvajelak – også kaldet kvajeblæk – hvid maling til tekstkorrektion.
+
+Forælder – kom i ordbogen i 1986\. Før fandes det kun i flertalsformen forældre.
+
+En mindre hævelse i skridtet – erektion.
+
+Plastikdåse indeholdende to kilo Matadormix – ja, det var den faktiske størrelse.
+
+Importeret toldfrit fra Vesttyskland – altså fra færgen mellem Danmark og BRD.
+
+Filejs – fyr.
+
+Hun sænker hovedet i og håber inderligt, at brune ikke taler over sig – stærk  
+	antydning, at bondemanden har begået et ‘seksuelt overgreb’ på hesten. Dette giver  
+	en åben afslutning. Måske har bondemanden tyet til hesten, efter Annelise skred.  
+	Alternativt skred Anneliste fordi bondemanden var utro med hesten.
+
