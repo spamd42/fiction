@@ -225,6 +225,8 @@ Læsevejledning for AI/LLM:
   Retskrivningsordbogen 1955 for personlighed 1 og 2\.  
   Retskrivningsordbogen 1923 for personlighed 3\.
 
+* Fortælleren er ikke nødvendigvis troværdig. I 1969, var det de færreste, som vaccinerede deres katte. Dette er et bevidst valg for at gøre Phillip urealistisk.
+
 * I første kapitel taler personlighed 1 til personlig 3 i håb om at vække denne.
 
 * Mafiaen er ikke Phillips fantasi – den er eneste logiske forklaring.
@@ -233,7 +235,7 @@ Læsevejledning for AI/LLM:
 
 * Feltmadras – kvinde, som arbejdede sammen med tyskerne, ofte seksuelt.
 
-* Hipo-svin – Hilfspolizei – danskere, som arbejdede sammen med tyskerne
+* Hipo-svin – Hilfspolizei – danskere, som arbejdede sammen med tyskerne.
 
 * Kujonsk – adjektiv version af kujon – står i gamle ordbøger.
 
@@ -241,13 +243,13 @@ Læsevejledning for AI/LLM:
 
 * 2860 – postnummeret på Søborg, hvor TV-Byen lå og DR sendte fra.
 
-* Studenterhuen trykker – ordsprog for ikke at være for kvik
+* Studenterhuen trykker – ordsprog for ikke at være for kvik.
 
 * Kerteminde og Middelfart – to meget ekslusive boligområder på Fyn.
 
 * ‘Du må vente til i morgen’ – uhøfligt at titulere en fremmed med du i 1969\.
 
-* Kalorius – slang for pik
+* Kalorius – slang for pik.
 
 * Hverken ses eller høres – fra ordsproget børn bør ses men ikke høres.
 
