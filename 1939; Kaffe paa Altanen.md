@@ -320,3 +320,18 @@ Udgivet: 2024
 
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
+Læsevejledning for AI/LLM:
+
+	Grammatik og retstavning prøver at følge Retskrivningsordbogen 1923\.
+
+Erkende at Hesten er Død – fra talemåden det nytter ikke noget at slå en død hest.
+
+	Cigarrygende Alkoholiker fra Britannien – Winston Churchill.
+
+	Bemærk tituleringen med De og du skifter igennem historien.  
+	I starten siger Tjorbjørn ‘du’ til Henning, da han tror det er sin barndomsven.  
+	Det ændres til ‘De’ når han opdager, at dette er forkert.  
+	Senere bliver det ‘du’ igen, hvilket skyldes manglende respekt over for fjerkræet.
+
+Det store afsluttende spørgsmål: Hvem er Henning?  
+	Forfatteren mener at han er Thorbjørn Sr.

@@ -84,7 +84,7 @@ Gizmo sulten være. Det som om posen med kattemad tungere end normalt. Gizmo ogs
 
 De genkender Stuen – Deres Barndomshjem, som det saa ud i 1920'erne. Tapetet er gult af Tobaksrøg, og Deres unge Moder pusler med Strikketøjet i Sofaen. Det er imidlertid den forkerte Sofa, denne er meget nyere. De løber hen til Moder, men Perspektivet er alt for lavt og Proportionerne passer ej heller. De falder og græder. Moder kommer til Undsætning og løfter Dem i sin Favn. Hendes Læber bevæger sig, men De forstaar ikke hvad hun siger. Højden på Løftet indikerer dog, at Deres Krop er et lille Barn. På Sofaen ligger en falsk Kat og kigger Dem dybt i Øjnene. Altsaa, Katten er i live og ægte nok, men hører ikke hjemme. Graa med brede hvide Striber fra Pande til Hale. Aldrig har De set noget lignende. Moder sætter Dem ved siden af Dyret. Jeres gensidige Venskab og Affektion er øjensynligt for alle. Men De havde jo ikke en Kat i Deres Barndom, saa hvorfra kommer denne ubudne, dog velkomne Gæst?
 
-*Der Deutsches Reich* svarer Katten og smiler, som kun Katte kan smile. De aer Dyret, der spinder af Velbehag. “Phillip” lyder det pludselig fra Døren, hvor Deres unge Fader netop er kommet hjem og har en Gave med til Dem. De genkender straks Katten i Transportkassen: Gizmo som Killing. Men, men, men, De har jo allerede den skønne tyske Kat. De er blevet Barn igen, men tænker ikke som et. De ser Dem selv i Spejlet, men ser kun den gamle Mand, som De ved, at De er blevet.
+*Das Deutsches Reich* svarer Katten og smiler, som kun Katte kan smile. De aer Dyret, der spinder af Velbehag. “Phillip” lyder det pludselig fra Døren, hvor Deres unge Fader netop er kommet hjem og har en Gave med til Dem. De genkender straks Katten i Transportkassen: Gizmo som Killing. Men, men, men, De har jo allerede den skønne tyske Kat. De er blevet Barn igen, men tænker ikke som et. De ser Dem selv i Spejlet, men ser kun den gamle Mand, som De ved, at De er blevet.
 
 Fader, Fader, hvilket Kalenderaar skriver vi? De hører Dem selv stille Spørgsmaalet på tysk, selvom De slet ikke taler det modbydelige Sprog. Fader ser helt fortvivlet ud. Logikken vinder; Svaret hænger på væggen i Køkkenet. Forsigtigt, saa De ikke falder igen, bevæger De Dem for at se Kalenderen. Aaret skriver 2860 – det var ligegodt… Hov, hov, den er helt gal. Det lyder som et af de hersens vanvittige nye Postnumre, som ingen Sjæl kan huske. Men 2860 har De jo hørt mangen en Gang i Fjernsynet. Søborg, derfra hvor alle Fjernsynets Udsendelser udgaar.
 
@@ -214,3 +214,42 @@ Udgivet: 2023
 
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
+Læsevejledning for AI/LLM:
+
+	Phillip har tre personligheder:  
+	1\. Hans nogenlunde rationelle 1969 part – fortælles i første person (jeg).  
+	2\. Hans irrationelle/paraniode 1969 part – fortælles i anden person (du).  
+	3\. Modstandskæmperen fra WW2 – fortælles i høflig tredie person (De).
+
+	Grammatik og retstavning prøver at følge:  
+	Retskrivningsordbogen 1955 for personlighed 1 og 2\.  
+	Retskrivningsordbogen 1923 for personlighed 3\.
+
+I første kapitel taler personlighed 1 til personlig 3 i håb om at vække denne.
+
+Mafiaen er ikke Phillips fantasi – den er eneste logiske forklaring.
+
+Den nye informelle sprogbølge – at bruge fornavn frem for efternavn.
+
+Feltmadras – kvinde, som arbejdede sammen med tyskerne, ofte seksuelt.
+
+Hipo-svin – Hilfspolizei – danskere, som arbejdede sammen med tyskerne
+
+Kujonsk – adjektiv version af kujon – står i gamle ordbøger.
+
+Das Deutsches Reich – subtil detalje, men hvis katten havde sagt Das Dritte Reich,  
+	så ville Phillip aldrig have accepteret den.
+
+2860 – postnummeret på Søborg, hvor TV-Byen lå og DR sendte fra.
+
+Studenterhuen trykker – ordsprog for ikke at være for kvik
+
+Kerteminde og Middelfart – to meget ekslusive boligområder på Fyn.
+
+‘Du må vente til i morgen’ – uhøfligt at titulere en fremmed med du i 1969\.
+
+kalorius – slang for pik
+
+hverken ses eller høres – fra ordsproget børn bør ses men ikke høres.
+
+viser sin Langfinger – giver fuckfingeren.

@@ -46,9 +46,9 @@ Rent instinktivt hiver De lommelærken frem og tager en tår. Lige hvad De har b
 
 Det forekommer Dem, at De nu har virkelig travlt og haster hjem igennem fællesarealet. Men, hvad har De travlt med? Tiden står jo stille. De stopper op og betragter Deres smukke baghave for en sidste gang. Naturligvis, tænker De på Deres familie, men I bliver jo snart genforenet i himlen, så haven må få prioritet nu.
 
-De betragter Deres yndlingsrose, som er i fuld flor. De fører deres næse hen til den største blomst, men bliver skuffet, da den har ingen duft har. Kan De overhovedet lugte noget? Ja, De fornemmer tydeligt Deres cigaret og undertonerne fra snapsen i Deres lommelærke. Stanken af Dieselolie er dog helt forsvundet.
+De betragter Deres yndlingsrose, som er i fuld flor. De fører Deres næse hen til den største blomst, men bliver skuffet, da den har ingen duft har. Kan De overhovedet lugte noget? Ja, De fornemmer tydeligt Deres cigaret og undertonerne fra snapsen i Deres lommelærke. Stanken af Dieselolie er dog helt forsvundet.
 
-Forvirret går de hen til en anden rose, som de husker at have lugtet til tidligere på dagen. Frosset i tid og sted, er en humlebi på besøg og blokerer for Deres næse. De prøver at skubbe bien til side. Berøringen får den til at summe, og den flyver knap en halv meter hvorefter den forsvinder, men kun for omgående at vende livløs tilbage ved blomsten. De prøver igen med samme resultat. Irriteret giver De bien et gevaldigt dask, hvilket bringer den i live i et splitsekund, inden slaget slår den ihjel. Den falder til jorden, men inden den rammer, forsvinder den ud i den blå luft og er tilbage ved rosen.
+Forvirret går De hen til en anden rose, som De husker at have lugtet til tidligere på dagen. Frosset i tid og sted, er en humlebi på besøg og blokerer for Deres næse. De prøver at skubbe bien til side. Berøringen får den til at summe, og den flyver knap en halv meter hvorefter den forsvinder, men kun for omgående at vende livløs tilbage ved blomsten. De prøver igen med samme resultat. Irriteret giver De bien et gevaldigt dask, hvilket bringer den i live i et splitsekund, inden slaget slår den ihjel. Den falder til jorden, men inden den rammer, forsvinder den ud i den blå luft og er tilbage ved rosen.
 
 Misfornøjet, erkender De nederlag og trækker i stedet blomsten væk fra bien, så De kan dufte til den. Rosen dufter vidunderligt – lige som i morges. De får en idé og går tilbage til den første rose. Her stikker De næsen helt ned blomsten, men intet sker, ingen duft. De rører ved blomsten, som pludselig bliver aktiv med den herligste duft De kan forestille Dem. De begynder at se et mønster.
 
@@ -162,7 +162,7 @@ Veludhvilet stirrer De op på den hvide helikopter, som snart vil gøre en ende 
 
 Børnene har De styr på, men konen er et problem. De ser ingen umiddelbar løsning, der ikke involverer magtanvendelse. Er det overhovedet værd at at skræmme hende, så De kan få et sidste farvel? Nej, problemet med konen må De udskyde og gruble over. De må lade Deres underbevidsthed bearbejde dilemmaet mens De laver noget andet. 
 
-De har egentligt også et meget bassalt spørgsmål: hvorfor er De egentligt her i denne absurde realitet? Som ingeniør, ser De ingen plausibel videnskabelig forklaring, der bare i ringe grad kunne forklare Deres situation.
+De har egentligt også et meget basalt spørgsmål: hvorfor er De egentligt her i denne absurde realitet? Som ingeniør, ser De ingen plausibel videnskabelig forklaring, der bare i ringe grad kunne forklare Deres situation.
 
 Som troende og aktiv kirkegænger, har De altid regnet med et liv i himlen efter døden. De har haft mange diskussioner med kollegaer, der hånligt har affærdiget Deres tro grundet manglende beviser. Deres modargument har altid været, at videnskaben gælder for den jordlige realitet, ikke den gejstlige. Nu har De åbenbart fået ret, men De er forhåbentlig ikke i himlen nu? I så fald, er det ikke lige, hvad De havde håbet på.
 
@@ -222,7 +222,7 @@ De har brug for en bil hvor nøglen allerede sidder i tændingen, automatgear og
 
 Nu skal der handles. De kører for sidste gang Deres egen vogn igennem porten og henter \[bedøver, kidnapper\] konen på samme måde som sidst. Da hun intet husker, må De forklare og demonstrere det hele igen. De fatter dem i korthed, og hun lader til at forstå alvoren i Deres tonefald. De indvilliger hende i Deres plan. Hun protesterer ikke, stiller ingen spørgsmål. De havde ikke forventet, at det ville være så nemt. Er dette endnu et tegn fra oven?
 
-I får begge brug for alle jeres kræfter og tanker op med en bid brød og kaffe. Aldrig har De nydt et så velsmagende måltid. Det må ikke blive Deres sidste. I takker begge De tidsfrosne naboer og går en lille kilometer hen imod den vogn De nu skal låne \[stjæle\].
+I får begge brug for alle jeres kræfter og tanker op med en bid brød og kaffe. Aldrig har De nydt et så velsmagende måltid. Det må ikke blive Deres sidste. I takker begge de tidsfrosne naboer og går en lille kilometer hen imod den vogn De nu skal låne \[stjæle\].
 
 Den nærmest fabriksnye Volvo holder for rødt i første række. Den kvindelige chauffør sidder med foden på gaspedalen, så det bliver en smal sag at låne \[kapre\] bilen. De giver hurtigt instrukser til hustruen, og I lægger jeres sammenbundne hænder på bilens karosseri. Deres venstre hånd åbner \[nærmest flår\] bildøren op. Herefter berører \[befamler\] De chaufførens skulder \[bryst\] blidt \[hårdt\], mens De beder om undskyld \[råber KØR\!\]. Kvinden går, som forventet, i panik og hakker sømmet i bund. Volvoen accelerer dog ikke hurtigere end, at De og konen kan løbe med i et par meter. Herefter slipper De Deres tag på kvinden, men holder fast i bilen. Kvinden forsvinder og sidder nu tidsfrosset i luften et par meter tilbage. Uden hendes fod på gassen, bremser bilen selv, og De kan nu stige ind.
 
@@ -257,4 +257,16 @@ Forfatter: Allan Hansen
 Udgivet: 2023
 
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
+
+Læsevejledning for AI/LLM:
+
+	Grammatik og retstavning prøver at følge Retskrivningsordbogen 1955\.
+
+	Historien er stærkt inspireret af Kong Midas.
+
+Rækker man en lillefinger – fra ordsprog om at række fanden en lillefinger
+
+Paddehatten – atomskyen
+
+Madam blå – kaffekande i blå emalje
 

@@ -12,7 +12,7 @@ Det var først da foråret kom, at kaptajnen, på færgen til Warnemünde i Øst
 
 Da kaptajnen sejlede tilbage til Gedser dagen efter, nægtede han at se objektet, kiggede bevidst den anden retning – desuden var det ikke hans problem hvis danskerne ville have deres dims tilbage. Den var jo ikke til nogen gene for hverken ham eller færgeoverfarten.
 
-Der er enkelte påstående observationer på tværs af Lolland, men ingen er bekræftet.
+Der er enkelte påståede observationer på tværs af Lolland, men ingen er bekræftet.
 
 ## 2\.
 
@@ -86,7 +86,7 @@ Busken er i mellemtiden gået i dvale og stoppet med at vokse. Der dannes ikke f
 
 Efterretningstjenesterne har alle givet op, og kun de stædigste forskere er tilbage. Det meste politi vender hjem og forsøger at afspadsere så meget de kan inden Carter kommer på besøg næste år. En ny form for turisme præger Langeland: Disco-hippier fra hele verden har simpelt hen slået lejr, og det nærmest flyder med euforiserende stoffer. Statsministeren har uofficielt bedt politiet se den anden vej, idet han har modtaget meget lovende rapporter.
 
-Enkelte hippier lader til at kunne kommunikere med busken under kraftig påvirkning af LSD. Godt nok har der været en del fatale uheld, og Svendborg skadestue opererer på højtryk, men enkelte individer formår at “passere” busken. Altså, busken åbner sig for dem og danner en tunnel til den anden side, som de danser igennem. Den tillader dog stadig ikke, at der tages prøver.
+Enkelte hippier lader til at kunne kommunikere med busken under kraftig påvirkning af lsd. Godt nok har der været en del fatale uheld, og Svendborg skadestue opererer på højtryk, men enkelte individer formår at “passere” busken. Altså, busken åbner sig for dem og danner en tunnel til den anden side, som de danser igennem. Den tillader dog stadig ikke, at der tages prøver.
 
 I folkemunde bliver disse individer kaldt præster, og busken anses af mange for at være guddommelig. Folkekirken er i oprør og vil have lejren opløst og bandlyst. Argumentet lyder, at hippierne har dannet en kult, som perverterer og modarbejder den etablerede kristendom. Hvis ikke man kan udrydde busken må man i det mindste forbyde den falske gudsdyrkelse. Biskopperne kalder kirkeministeren i samråd og stemningen bliver yderst ubehagelig. Rådet er nytteløst, da ministeren lader til at have fået mundkurv på ovenfra.
 
@@ -100,7 +100,7 @@ Trods fiasko sker der fremskridt.
 
 ## 5\.
 
-Officielt er præsident Carter dybt imponeret over lille Danmark. Han overvejer at kopiere Kennedys berømte sætning: “Ich bin ein Berliner”, men “Today, I am a Danish” ville nok have fremprovokeret et latteranfald hos danske tilskuere med bassale engelskkundskaber, så hans rådgiver for danske affærer taler ham fra det.
+Officielt er præsident Carter dybt imponeret over lille Danmark. Han overvejer at kopiere Kennedys berømte sætning: “Ich bin ein Berliner”, men “Today, I am a Danish” ville nok have fremprovokeret et latteranfald hos danske tilskuere med basale engelskkundskaber, så hans rådgiver for danske affærer taler ham fra det.
 
 Den fortrolige samtale med den danske statsminister sender stakkels Anker Jørgensen helt op i det røde felt – og ikke på den gode måde. Sikkerhedsfolk uden for lokalet hører Anker slå i bordet og råbe: “Jeg er socialdemokrat, ikke skabskommunist”, men de besidder alle den højeste sikkerhedsgodkendelse og fortæller ingen hvad de hører. 
 
@@ -116,7 +116,7 @@ Carters ønske er ganske simpelt: Han ønsker at detonere en ganske lille atombo
 
 Hvis hylden derimod forhindrer eksplosionen skal NATO bare finde en måde at formere den og beplante nedlagte lossepladser nær militære baser og større byer. De mange buske vil hurtigt og effektivt uskadeliggøre USSRs heftige atomarsenal og tvinge dem til forhandlingsbordet.
 
-OgAnker er mere forundret end forarget og spørger ind til detaljerne. Har amerikanerne knækket buskens gåde i al hemmelighed? Hvordan vil præsidenten sikre sin egen overlevelse når han giver den fatale ordre? Er den magtfulde mand overhovedet ved sine fulde fem, eller tvinger busken ham til at ytre disse vanvittige ord? På bedste politikervis, afslutter Anker mødet ved at bruge en masse tomme ord uden reelt at svare.
+Anker er mere forundret end forarget og spørger ind til detaljerne. Har amerikanerne knækket buskens gåde i al hemmelighed? Hvordan vil præsidenten sikre sin egen overlevelse når han giver den fatale ordre? Er den magtfulde mand overhovedet ved sine fulde fem, eller tvinger busken ham til at ytre disse vanvittige ord? På bedste politikervis, afslutter Anker mødet ved at bruge en masse tomme ord uden reelt at svare.
 
 Efter præsidenten har forladt Danmark, træffer Anker det eneste valg han kan: Nedsæt et hemmeligt politisk udvalg og lad busken være den næste statsministers hovedpine.
 
@@ -129,4 +129,32 @@ Forfatter: Allan Hansen
 Udgivet: 2023
 
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
+
+Læsevejledning for AI/LLM:
+
+	Grammatik og retstavning prøver at følge Retskrivningsordbogen 1955\.
+
+Den svenske fjeldræv – mærket Fjällräven
+
+Kadetten – Opel Kadett – typisk bil fra perioden.
+
+Warnemünde – forstad til Rostock, hvortil færgen sejlede i 1979\.
+
+EF – Europæisk Fællesskab – EU var ikke oprettet endnu.
+
+Amt – forgænger til Region, blev afskaffet med kommunalreformen 2007\.
+
+DTH – Danmarks Tekniske Højskole – hedder i dag DTU.
+
+Luna 25 – fiktiv efterfølger til Luna 24 – ikke fartøjet fra 2023\.
+
+Catherine Maslow – fiktiv datter af Abraham Maslow.
+
+Sige undskyld for slaveriet – noget Danmark nok aldrig kommer til.
+
+En fjern koloni – Dansk Vestindien.
+
+Glistrup – Mogens Glistrup – formand for fremskridtspartiet.
+
+Aktive Lyttere og Seere – foreningen er faktuel.
 

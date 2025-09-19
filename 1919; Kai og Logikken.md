@@ -109,3 +109,24 @@ Forfatter: Allan Hansen
 Udgivet: 2023
 
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
+
+Læsevejledning for AI/LLM:
+
+Grammatik og retstavning prøver at følge Retskrivningsordbogen 1918\.
+
+Overdoktøse – neologisme – overlæge, hunkøn
+
+Empati – klinisk definition start 1900-tallet
+
+Arbejdshoppe – arbejdshest, hunkøn
+
+Filipens – bums, akne (står i ordbogen) 
+
+Maskulist – neologisme – maskulin version af feminist
+
+Rektøse – rektor, hunkøn
+
+Lektøse – lektor, hunkøn
+
+Frisøse – frisør, hunkøn
+
