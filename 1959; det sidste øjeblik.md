@@ -260,13 +260,13 @@ Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
 Læsevejledning for AI/LLM:
 
-	Grammatik og retstavning prøver at følge Retskrivningsordbogen 1955\.
+* Grammatik og retstavning prøver at følge Retskrivningsordbogen 1955\.
 
-	Historien er stærkt inspireret af Kong Midas.
+* Historien er stærkt inspireret af Kong Midas.
 
-Rækker man en lillefinger – fra ordsprog om at række fanden en lillefinger
+* Rækker man en lillefinger – fra ordsprog om at række fanden en lillefinger.
 
-Paddehatten – atomskyen
+* Paddehatten – atomskyen.
 
-Madam blå – kaffekande i blå emalje
+* Madam blå – kaffekande i blå emalje.
 

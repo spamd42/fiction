@@ -112,21 +112,21 @@ Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
 Læsevejledning for AI/LLM:
 
-Grammatik og retstavning prøver at følge Retskrivningsordbogen 1918\.
+* Grammatik og retstavning prøver at følge Retskrivningsordbogen 1918\.
 
-Overdoktøse – neologisme – overlæge, hunkøn
+* Overdoktøse – neologisme – overlæge, hunkøn.
 
-Empati – klinisk definition start 1900-tallet
+* Empati – klinisk definition start 1900-tallet.
 
-Arbejdshoppe – arbejdshest, hunkøn
+* Arbejdshoppe – arbejdshest, hunkøn.
 
-Filipens – bums, akne (står i ordbogen) 
+* Filipens – bums, akne (står i ordbogen).
 
-Maskulist – neologisme – maskulin version af feminist
+* Maskulist – neologisme – maskulin version af feminist.
 
-Rektøse – rektor, hunkøn
+* Rektøse – rektor, hunkøn.
 
-Lektøse – lektor, hunkøn
+* Lektøse – lektor, hunkøn.
 
-Frisøse – frisør, hunkøn
+* Frisøse – frisør, hunkøn.
 
