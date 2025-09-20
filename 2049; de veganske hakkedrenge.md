@@ -223,30 +223,30 @@ Mira:	Vi står alene.
       Cihan væk – Konstantinopel, langt væk,  
          – hans skæbne uden for vores hænder.
 
-	Politiet? Trossamfundet? Ingen sikkerhed. Ingen fred.  
-		Slagteriet – vores domæne, vores kontrol.  
-			Kød. Blod. Bacon. Nært beslægtet. Nært forståeligt.
+   Politiet? Trossamfundet? Ingen sikkerhed. Ingen fred.  
+      Slagteriet – vores domæne, vores kontrol.  
+         Kød. Blod. Bacon. Nært beslægtet. Nært forståeligt.
 
-Vi kan redde fremtiden.  
-		Overleve.  
-			Fortsætte.
+   Vi kan redde fremtiden.  
+      Overleve.  
+         Fortsætte.
 
-Jeg mærker Zehra ved min side.  
-	Hun fryser, ryster, men hendes øjne glimter.  
-		Vi kan. Vi må.
+   Jeg mærker Zehra ved min side.  
+      Hun fryser, ryster, men hendes øjne glimter.  
+         Vi kan. Vi må.
 
-En beslutning, en tanke – fødes som et dyr i mørket, instinktiv, brutal.  
-		Et valg, et ansvar, en handling bliver til virkelighed.  
-			Vi må spise Cihan – beviset væk.
+   En beslutning, en tanke – fødes som et dyr i mørket, instinktiv, brutal.  
+      Et valg, et ansvar, en handling bliver til virkelighed.  
+         Vi må spise Cihan – beviset væk.
 
-	Ikke med glæde, ikke med had.  
-		Med logik. Med nødvendighed.  
-			Med overlevelse indlejret i hvert bid.
+   Ikke med glæde, ikke med had.  
+      Med logik. Med nødvendighed.  
+         Med overlevelse indlejret i hvert bid.
 
-Vi overlever.  
-		Vi holder sammen.  
-			Vi er mordere.  
-				Vi er familie.
+   Vi overlever.  
+      Vi holder sammen.  
+         Vi er mordere.  
+            Vi er familie.
 
 Zehra: 	Cihan, dit svin, nej undskyld til svinet.  
 	Mennesket er jo din nære slægtning,  
@@ -262,40 +262,40 @@ Kunne du have stoppet kniven, før den blev løftet?
 Standset Cihans vanvid, før hadet brændte frit?
 
 Mira:	Var det min skyld, hans vrede?  
-		Han fik samme opdragelse som de andre,  
-			samme bord, samme seng, samme kærlighed.  
+      Han fik samme opdragelse som de andre,  
+         samme bord, samme seng, samme kærlighed.  
 
-Og dog blev han hård som sten, hvor de andre bløde.  
-		Nej – det var troens onde tunger,  
-			de mænd, der hviskede i hans øre dag for dag.
+   Og dog blev han hård som sten, hvor de andre bløde.  
+      Nej – det var troens onde tunger,  
+         de mænd, der hviskede i hans øre dag for dag.
 
 \~\~\~ Korleder \~\~\~  
 Og alligevel – skjuler du en hemmelighed.  
 Var der intet, du kunne have gjort, før alt gik galt?  
 
 Mira:	En hemmelighed, ja… to, om jeg skal være ærlig.  
-		Udskudt katastrofen, ja — men ikke forhindret.  
-			Skæbnen dikterede Cihans vej; hans fodspor var sat.
+      Udskudt katastrofen, ja — men ikke forhindret.  
+         Skæbnen dikterede Cihans vej; hans fodspor var sat.
 
-	Men jeg selv – jeg levede i skyggen.  
-		Lod som om, jeg var den enfoldige hustru,  
-			som ej forstod forretning, ej kunne læse tal.
+   Men jeg selv – jeg levede i skyggen.  
+      Lod som om, jeg var den enfoldige hustru,  
+         som ej forstod forretning, ej kunne læse tal.
 
-Min mand var mand – og jeg spillede min rolle.  
-		Men sandheden?  
-			Jeg tænkte, regnede, planlagde i det skjulte.
+   Min mand var mand – og jeg spillede min rolle.  
+      Men sandheden?  
+         Jeg tænkte, regnede, planlagde i det skjulte.
 
-En dag tog jeg hans skjulte kasse – de sorte penge.  
-		Jeg lånte dem, kun i ganske få uger,  
-			lagde samme beløb tilbage.  
+   En dag tog jeg hans skjulte kasse – de sorte penge.  
+      Jeg lånte dem, kun i ganske få uger,  
+         lagde samme beløb tilbage.  
 
-Men siden voksede det, investering på investering,  
-		og i stilhed blev det til en sum,  
-			stor nok til at redde os, stor nok til at stå alene.  
+   Men siden voksede det, investering på investering,  
+      og i stilhed blev det til en sum,  
+         stor nok til at redde os, stor nok til at stå alene.  
 
-Så nej — jeg kunne ikke have stoppet Cihans hånd.  
-		Men jeg kunne — og kan — bære familien videre.  
-			Det er min byrde, min styrke, min sandhed.
+   Så nej — jeg kunne ikke have stoppet Cihans hånd.  
+      Men jeg kunne — og kan — bære familien videre.  
+         Det er min byrde, min styrke, min sandhed.
 
 ### 2039\.
 
@@ -306,14 +306,14 @@ De søger et liv i fred og bekvemmelighed – i frivillige lænker.
 
 \~\~\~ Korleder \~\~\~  
 Syng, Ozan, søn af Ilhan,  
-	om hvad du lover de mange kvinder,  
-		der dig i haremmet dydigt følger.
+   om hvad du lover de mange kvinder,  
+      der dig i haremmet dydigt følger.
 
 \~\~\~ Ozan \~\~\~  
 Sødme uden slid, frugt af marken,  
-	vin af jorden, kun lidt arbejde i solens milde lys.  
+   vin af jorden, kun lidt arbejde i solens milde lys.  
 Til gengæld føder de fremtiden, som mine børn skal bære,  
-	den dag når Danmark selv i maskinernes grav synker.
+   den dag når Danmark selv i maskinernes grav synker.
 
 \~\~\~ 2\. korsanger i kvindeklæder \~\~\~  
 Pik, pik – hans pik, de have vil,  
@@ -368,8 +368,8 @@ stærkere, klogere, smukkere
 
 \~\~\~ Mira \~\~\~  
 Jeg tæller mønterne i det skjulte.  
-	Jeg sår og investerer, som jeg altid gjorde.  
-		Kollektivet vokser – mur for mur, barn for barn.
+   Jeg sår og investerer, som jeg altid gjorde.  
+      Kollektivet vokser – mur for mur, barn for barn.
 
 Sådan bærer jeg min byrde, sådan holder jeg dem oprejst.
 
@@ -420,8 +420,8 @@ Faderhånden ej mild nok svagheden at besinde?
 
 \~\~\~ Mira \~\~\~  
 Nej – vi så, hvordan Cihan blev til sten.  
-	Et hjerte uden lys, et sind uden fred.  
-		En sådan må aldrig leve igen, ellers vort værk til jorden falde.
+   Et hjerte uden lys, et sind uden fred.  
+      En sådan må aldrig leve igen, ellers vort værk til jorden falde.
 
 \~\~\~ Koret \~\~\~  
 De smukke og de grimme, de kvikke og de sløve  
