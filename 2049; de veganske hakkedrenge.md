@@ -291,8 +291,8 @@ En hemmelighed, ja… to, om jeg skal være ærlig.
       Skæbnen dikterede Cihans vej; hans fodspor var sat.
 
 Mit forræderi langt større end Zehras.  
-	Min mand fornedret, Cihan ført bag lyset.  
-		Troen gjort til skamme. 
+   Min mand fornedret, Cihan ført bag lyset.  
+      Troen gjort til skamme. 
 
 Men jeg selv – jeg levede i skyggen.  
    Lod som om, jeg var den enfoldige hustru,  
