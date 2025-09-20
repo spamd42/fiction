@@ -176,22 +176,22 @@ Zehra: 	Cihan ville slå mig ihjel – mit eget kød og blod.
 Ozan: Han vist død, så jeg morder. Nej, drabsmand, selvforsvar, han… han… åh…
 
 Mira:	Cihan, min søn… mit barn… er dræbt.  
-		Min søn har slået min søn ihjel, men min datter lever.  
-			Jeg har mistet en søn, men ellers ville jeg have mistet Zehra.
+      Min søn har slået min søn ihjel, men min datter lever.  
+         Jeg har mistet en søn, men ellers ville jeg have mistet Zehra.
 
-	Ozan, min dreng … min morder.   
-		Du har slået Cihan ihjel, men du har reddet din søster,  
-			– din alt for fritgående, vilde, utålmodige søster.
+   Ozan, min dreng … min morder.   
+      Du har slået Cihan ihjel, men du har reddet din søster,  
+         – din alt for fritgående, vilde, utålmodige søster.
 
-	Kunne jeg selv have valgt?   
-		Kunne jeg have forudset, stoppet, forhindret?  
-			Jeg føler sorg, skam, lettelse – alt på én gang.
+   Kunne jeg selv have valgt?   
+      Kunne jeg have forudset, stoppet, forhindret?  
+         Jeg føler sorg, skam, lettelse – alt på én gang.
 
-Er jeg stolt af dig, Ozan, eller skræmt af, hvad du er i stand til?
+   Er jeg stolt af dig, Ozan, eller skræmt af, hvad du er i stand til?
 
-Min familie… splittet, men stadig her.  
-		Hvordan kan vi leve videre efter dette?  
-			Hvordan kan man elske én søn og være lettet over den andens død?
+   Min familie… splittet, men stadig her.  
+      Hvordan kan vi leve videre efter dette?  
+         Hvordan kan man elske én søn og være lettet over den andens død?
 
 Zehra: 	Åh, Ozan med de smukke blå øjne.  
 	Hvis du bare – det var din skyld, min skyld, vores.  
