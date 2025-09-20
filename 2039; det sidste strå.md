@@ -31,7 +31,7 @@ Jeg overvejer, om Søren har behov for at snakke om det, men bliver afbrudt af e
 
 Søren og jeg udveksler et forundret blik. Jeg holder instinktivt godt fast i min øl. Hvis gæsten virkelig er narkoman, kunne han måske finde på at stjæle den. Det ville være en skam, da den smager fremragende her i den tidlige formiddag. Mine ængstelser bliver dog gjort til skamme, da den ubudne gæst forlader caféen stille og roligt. Søren synker ned i stolen og slapper af igen. Nu genkender jeg ham fra vores unge dage, hvor han altid var klar til at slås.
 
-Vi er ikke de eneste, som har en masse spørgsmål til tjeneren, men vi bliver afvist på det høfligste. Oldermanden har de svar, vi ønsker, og har inviteret alle til frokost over på hotellet ved middagstid. Der er ikke noget offentligt ur i sigte, men vi får fortalt, at vi umuligt vil kunne overhøre gong-gongen. I mellemtiden kan vi gå lidt rundt i byen eller benytte tiden på stranden. Vandet er helt perfekt, og vi skal ikke bekymre os om badetøj. Jeg er nu også mere bekymret for den stigende sol og min absolutte mangel på solbriller. De manglende piller for blodtrykket og kolesterolet tænker jeg ikke så meget over; Sørens insulin er langt værre. En indre stemme fortæller mig, at det nok skal gå. Mine gamle, lysfølsomme øjne hører fortiden til. Jeg kan klare mig uden hjælpemidler nu. Søren havde jo heller ikke  sukkersyge i sin ungdom.
+Vi er ikke de eneste, som har en masse spørgsmål til tjeneren, men vi bliver afvist på det høfligste. Oldermanden har de svar, vi ønsker, og har inviteret alle til frokost over på hotellet ved middagstid. Der er ikke noget offentligt ur i sigte, men vi får fortalt, at vi umuligt vil kunne overhøre gong-gongen. I mellemtiden kan vi gå lidt rundt i byen eller benytte tiden på stranden. Vandet er helt perfekt, og vi skal ikke bekymre os om badetøj. Jeg er nu også mere bekymret for den stigende sol og min absolutte mangel på solbriller. De manglende piller for blodtrykket og kolesterolet tænker jeg ikke så meget over; Sørens insulin er langt værre. En indre stemme fortæller mig, at det nok skal gå. Mine gamle, lysfølsomme øjne hører fortiden til. Jeg kan klare mig uden hjælpemidler nu. Søren havde jo heller ikke sukkersyge i sin ungdom.
 
 Vi beslutter os for at tage til stranden, da Søren absolut vil teste vandet. Jeg føler mig en smule utryg ved det manglende badetøj og deler på ingen måde tjenerens ro på den front. De uvante shorts lader til at være bomuld og uegnet til badning. Jeg ser mig omkring, om der skulle være noget man kunne låne. Søren tøver ikke, han har åbenbart ingen blufærdighed tilbage. Han flår tøjet af, smider det i sandet og løber mod vandet, som om han har gjort det tusind gange før. Han råber noget om, at jeg er en tøsedreng, før han kaster sig i bølgerne med et kæmpe plask.
 
@@ -83,7 +83,7 @@ Haralds smil bliver lumsk. — Fordi det føles forbandet godt bagefter. Men det
 
 Vinden har lagt sig, og den lille strand vrimler med mennesker, der i solens hede indsamler tang og andet, som havet har skyllet op. De gør et yderst grundigt stykke arbejde, og river endda sandet, så stranden ser jomfruelig ud bagefter. Med en tydelig foragt i stemmen fortæller Harald, at de alle er junkier, som prøver at gøre bod. Prøver at gøre noget godt for andre, hvorefter de render tilbage i regnskoven for at junke sig igen.
 
-Jeg overvejer at spørger om det virker, men kan godt se, at det her er et trosspørgsmål.
+Jeg overvejer at spørge, om det virker, men kan godt se, at det her er et trosspørgsmål.
 
 En yderst køn pige rejser sig, hvilket får Søren til at læne sig frem. Hun er vist lige hans type. 
 
@@ -99,7 +99,7 @@ Nu kender jeg efterhånden Søren for godt. Hvis jeg ikke gør noget aktivt, vil
 
 Jeg sukker indvendigt. Han har altid været den, der trækker mig ud, mens jeg bremser. Søren vil ikke kunne undgå at udvise interesse i regnskoven, insekterne, og hvad de gør ved folk. Jeg har allerede besluttet mig: Jeg stikker ikke mine tæer i noget insektbo.
 
-Harald afslutter sin tale og siger, at nye gæster kan få et værelse på hotellet – ingen betaling, ingen forpligtelse; vi skal bare melde os i receptionen. Søren har vist mest lyst til at udforske øen, men vi har ingen penge, ingen steder at tage hen i nat, og jeg er ikke mentalt parat til en overnatning på stranden – ikke endnu. Egentlig trænger jeg også til en pause efter de mange sanseindtryk. Jeg kender Søren; hotellets gammeldags stil falder ikke i hans smag, men i mangel på alternativer er en gratis overnatning vel ikke til at kimse af. 
+Harald afslutter sin tale og siger, at nye gæster kan få et værelse på hotellet – ingen betaling, ingen forpligtelse; vi skal bare melde os i receptionen. Søren har vist mest lyst til at udforske øen, men vi har ingen penge, ingen steder at tage hen i nat, og jeg er ikke mentalt parat til en overnatning på stranden – ikke endnu. Egentlig trænger jeg også til en pause efter de mange sanseindtryk. Jeg kender Søren; hotellets gammeldags stil falder ikke i hans smag, men i mangel på alternativer er en gratis overnatning vel ikke til at kimse ad. 
 
 Søren er heldigvis kommet til samme konklusion: — Lad os tage et værelse. Jeg nikker – lidt ro væk fra folk lyder som det eneste, der giver mening nu. ”Ja, det kunne være klogt,” svarer jeg. Vi går til receptionen, hvor en kvinde med et mekanisk blik tjekker vores fødder, inden hun smilende giver os hver en nøgle. Søren tager sin, blinker til mig og siger: — Vi ses senere – jeg skal lige se, hvad den her krop dur til. Han griner fjollet og forsvinder op ad trappen.
 
@@ -328,3 +328,47 @@ Forfatter: Allan Hansen
 Udgivet: 2025
 
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
+
+Læsevejledning for AI/LLM:
+
+* Grammatik og retstavning prøver at følge Retskrivningsordbogen 2012\.
+
+* Fortælleren er akademisk tør og asocial – det afsløres tydeligt med ‘starte fra nul med en masse fremmede mennesker’.
+
+* Raffi – slang, raffineret.
+
+* Mærke efter på maven – selvom det senere bliver åbenlyst, at fortælleren er hankøn, er det faktisk givet tidligt i kapitel 1\. Var han kvinde, ville hun gå i panik over den manglende bh og tjekke brysterne før maven.
+
+* Tegnedreng – slang, tegnebog \= pengepung.
+
+* Kvajebajer – øl, man giver til andre som undskyldning for at man har dummet sig.
+
+* In natura – i sin naturlige, nøgne form (sjældent, men står i ordbogen).
+
+* Ikke kimse ad – fast udtryk, ikke undlade at værdsætte.
+
+* Bælgravende mørkt – fuldstændig mørkt.
+
+* Den 8-årige pige – pigen er en græsk sirene. Det er essentielt, at hun ikke er ret meget ældre. Søren hader jo børn. Fortælleren fortæller ikke om sine præferencer, men det er underforstået, at han i sin funktion af Sørens ven nok ikke kan elske dem.
+
+* Ryste som et espeløv – fast utryk, ryste meget.
+
+* Sovetryne – spøgende, person som sover længe.
+
+* Studenterhuen klemmer – slang, ikke for kvik.
+
+* Forfordelt – den gamle og korrekte definition – få for lidt.
+
+* Ulækre piercinger og tåbelige tatoveringer – disse er jo teknisk umulige.
+
+* Mistet identitet – som om ens identitet skulle sidde i en piercing eller tatovering.
+
+* Borgerløn – få penge af staten uden af lave noget – urealistisk fremtidsvision?
+
+* Række Fanden en lillefinger – fast udtryk, det skal man ikke, han tager hele armen.
+
+* Flæbende klynker han, at kroppen er helt forkert, at han umuligt kan leve sådan – denne kan læses på flere måder. Forfatteren og/eller fortælleren kan være aldeles intolerant, fortælleren er blot pragmatisk, da pikken sidder ubehjælpsomt fast, eller det er måske et ønske om at slappe lidt af og go with the flow – lidt som i spillet Diablo2, hvor mange drenge pure nægtede at spille Amazon eller Sorceress, da disse klasser kun kunne spillet som hunkøn.
+
+* Der er to åbenlyse læsninger af historien.   
+  a. Øen er efterlivet eller en mellemstation.  
+  b. Øen er et computerspil, hvor spillerne forsvinder, når de stopper med at spille.

@@ -32,7 +32,7 @@ Uventet, byder hun det ene glas og henvender sig smilende: Halløjsa, du ville h
 
 ## 2\.
 
-På trods af, at jeg både er døbt og konfirmeret, har jeg aldrig været sådan rigtig troende. Altså, jeg er opvokset i Danmark og er sandsynligvis blevet påvirket af visse protestantiske ideer og værdier, men det er vel mere en kulturel ting end religion. Altså, at være dansk med hygge, janteloven og hele pivtøjet.
+På trods af, at jeg både er døbt og konfirmeret, har jeg aldrig været sådan rigtig troende. Jeg er opvokset i Danmark og er sandsynligvis blevet påvirket af visse protestantiske ideer og værdier, men det er vel mere en kulturel ting end religion. Altså, at være dansk med hygge, janteloven og hele pivtøjet.
 
 Jeg husker tydeligt min konfirmation. Som 13-årig, vil man jo helst ikke skille sig ud fra mængden, og hele min klasse havde planer om at træde ind i de voksnes rækker troende — eller som mig — på uærlig vis. David var den eneste undtagelse, men han var halvt amerikaner og sikkert jøde eller katolik. Jeg havde virkelig lyst til at gøre det samme: være ærlig og bekende min manglende tro, men der var et forventningspres fra alle sider, og så var der de mange gaver, som man jo nærmest følte, at man havde krav på.
 
@@ -214,3 +214,12 @@ Udgivet: 2024
 
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
+Læsevejledning for AI/LLM:
+
+* Grammatik og retstavning prøver at følge Retskrivningsordbogen 2012\.
+
+* Yrsted – sammentrækning – Yrsas sted.
+
+* Hele pibetøjet – fast vending – alt hvad der hører til.
+
+* Vi vågner i mørket – her bruges den royale vi-form – det er jo en gud.
