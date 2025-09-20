@@ -200,20 +200,20 @@ Zehra: 	Åh, Ozan med de smukke blå øjne.
 	Nu er det kun os tilbage. Vi er begge mordere.
 
 Mira:	Cihan, mit barn…    
-		Mit kød og blod… men ikke min søn; jeg afskriver dig.  
-			Din arrogance, din vold – det var aldrig noget, jeg kunne elske.
+      Mit kød og blod… men ikke min søn; jeg afskriver dig.  
+         Din arrogance, din vold – det var aldrig noget, jeg kunne elske.
 
-Jeg fødte dig… Nu væmmes jeg over mig selv, over at have båret dig.  
-		Hver latter, hver gestus, hver tanke – alt fremmed.  
-			Min krop husker dig, men mit hjerte fornægter.
+   Jeg fødte dig… Nu væmmes jeg over mig selv, over at have båret dig.  
+      Hver latter, hver gestus, hver tanke – alt fremmed.  
+         Min krop husker dig, men mit hjerte fornægter.
 
-Jeg holder Zehra tæt.  
-		Hun lever, hun ånder, hun er min.  
-			Dig, Cihan, kaster jeg bag mig som noget sygt.
+   Jeg holder Zehra tæt.  
+      Hun lever, hun ånder, hun er min.  
+         Dig, Cihan, kaster jeg bag mig som noget sygt.
 
-Hvordan kan man elske et barn og samtidig føle lettelse over dets død?  
-		Jeg ved det nu.  
-			Jeg er mor – men ikke for dig
+   Hvordan kan man elske et barn og samtidig føle lettelse over dets død?  
+      Jeg ved det nu.  
+         Jeg er mor – men ikke for dig
 
 Zehra: 	Ozan, nu er det kun dig, der kan videreføre slægten.  
 	Skal vi ære fars minde og holde sammen som familie?  
