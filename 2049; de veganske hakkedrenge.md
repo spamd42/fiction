@@ -220,8 +220,8 @@ Zehra: 	Ozan, nu er det kun dig, der kan videreføre slægten.
 	Eller fortjener vi at blive glemt af tiden selv?
 
 Mira:	Vi står alene.  
-		Cihan væk – Konstantinopel, langt væk,  
-			– hans skæbne uden for vores hænder.
+      Cihan væk – Konstantinopel, langt væk,  
+         – hans skæbne uden for vores hænder.
 
 	Politiet? Trossamfundet? Ingen sikkerhed. Ingen fred.  
 		Slagteriet – vores domæne, vores kontrol.  
