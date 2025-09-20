@@ -160,142 +160,159 @@ Cihan hører intet: – Du har bragt skam over familien. Det er min ret og pligt
 
 – Nej, det er ikke fars vilje\! Ozan er hurtigt på benene, men hans ubetydelige størrelse og ord gør ikke spor indtryk. Ozan går i panik, ryster af rædsel og kærlighed på én gang – hvad som helst for at redde Zehra. Cihan fortsætter: – min ret og pligt at… Kniven falder til jorden før Cihan. Ozan har slået ham i baghovedet med en lysestage fra bordet. Stort set intet blod, bare et gevaldigt brag fra Cihans nu livløse krop.
 
-Zehra:	Jeg er en hore.   
-	Nej, ikke bare en hore  – noget  langt værre.  
-	Jeg fortjener en straf, men ikke dette. Ikke livet.  
-	Min bror, Cihan, ville slå mig ihjel\!
+\~\~\~ Zehra \~\~\~  
+Jeg er en hore.   
+Nej, ikke bare en hore  – noget  langt værre.  
+Jeg fortjener en straf, men ikke dette. Ikke livet.  
+Min bror, Cihan, ville slå mig ihjel\!
 
-Ozan: Jeg måtte redde min elskede søster. Jeg ville gøre det igen. Har jeg slået min bror ihjel? Nej, ikke min bror … han ville ikke… ville aldrig tage … ikke min søster, ikke fra mig, min eneste, min … Hvis han ikke er død endnu, så… så gør jeg det igen\!
+\~\~\~ Ozan \~\~\~  
+Jeg måtte redde min elskede søster. Jeg ville gøre det igen. Har jeg slået min bror ihjel? Nej, ikke min bror … han ville ikke… ville aldrig tage … ikke min søster, ikke fra mig, min eneste, min … Hvis han ikke er død endnu, så… så gør jeg det igen\!
 
-Zehra: 	Cihan ville slå mig ihjel – mit eget kød og blod.  
-	Min bror har reddet mit liv. Åh, min tåbelige,  
-	uforudselige bror har reddet mit liv.   
-	Hvad nu? Er Cihan død? Må vi flygte.  
-	I så fald, hvorhen?
+\~\~\~ Zehra \~\~\~  
+Cihan ville slå mig ihjel – mit eget kød og blod.  
+Min bror har reddet mit liv. Åh, min tåbelige,  
+uforudselige bror har reddet mit liv.   
+Hvad nu? Er Cihan død? Må vi flygte.  
+I så fald, hvorhen?
 
-Ozan: Han vist død, så jeg morder. Nej, drabsmand, selvforsvar, han… han… åh…
+\~\~\~ Ozan \~\~\~  
+Han vist død, så jeg morder. Nej, drabsmand, selvforsvar, han… han… åh…
 
-Mira:	Cihan, min søn… mit barn… er dræbt.  
-      Min søn har slået min søn ihjel, men min datter lever.  
-         Jeg har mistet en søn, men ellers ville jeg have mistet Zehra.
+\~\~\~ Mira \~\~\~  
+Cihan, min søn… mit barn… er dræbt.  
+   Min søn har slået min søn ihjel, men min datter lever.  
+      Jeg har mistet en søn, men ellers ville jeg have mistet Zehra.
 
-   Ozan, min dreng … min morder.   
-      Du har slået Cihan ihjel, men du har reddet din søster,  
-         – din alt for fritgående, vilde, utålmodige søster.
+Ozan, min dreng … min morder.   
+   Du har slået Cihan ihjel, men du har reddet din søster,  
+      – din alt for fritgående, vilde, utålmodige søster.
 
-   Kunne jeg selv have valgt?   
-      Kunne jeg have forudset, stoppet, forhindret?  
-         Jeg føler sorg, skam, lettelse – alt på én gang.
+Kunne jeg selv have valgt?   
+   Kunne jeg have forudset, stoppet, forhindret?  
+      Jeg føler sorg, skam, lettelse – alt på én gang.
 
-   Er jeg stolt af dig, Ozan, eller skræmt af, hvad du er i stand til?
+Er jeg stolt af dig, Ozan, eller skræmt af, hvad du er i stand til?
 
-   Min familie… splittet, men stadig her.  
-      Hvordan kan vi leve videre efter dette?  
-         Hvordan kan man elske én søn og være lettet over den andens død?
+Min familie… splittet, men stadig her.  
+   Hvordan kan vi leve videre efter dette?  
+      Hvordan kan man elske én søn og være lettet over den andens død?
 
-Zehra: 	Åh, Ozan med de smukke blå øjne.  
-	Hvis du bare – det var din skyld, min skyld, vores.  
-	Jeg vores barn bar, men skammen er min alene.  
-	Du vil aldrig få det at vide. Jeg vores barn dræbte.  
-	Nu er det kun os tilbage. Vi er begge mordere.
+\~\~\~ Zehra \~\~\~  
+Åh, Ozan med de smukke, naive blå øjne.  
+Hvis du bare – det var din skyld, min skyld, vores.  
+Jeg vores barn bar, men skammen er min alene.  
+Du vil aldrig få det at vide. Jeg vores barn dræbte.  
+Nu er det kun os tilbage. Vi er begge mordere.
 
-Mira:	Cihan, mit barn…    
-      Mit kød og blod… men ikke min søn; jeg afskriver dig.  
-         Din arrogance, din vold – det var aldrig noget, jeg kunne elske.
+\~\~\~ Mira \~\~\~  
+Cihan, mit barn…    
+   Mit kød og blod… men ikke min søn; jeg afskriver dig.  
+      Din arrogance, din vold – det var aldrig noget, jeg kunne elske.
 
-   Jeg fødte dig… Nu væmmes jeg over mig selv, over at have båret dig.  
-      Hver latter, hver gestus, hver tanke – alt fremmed.  
-         Min krop husker dig, men mit hjerte fornægter.
+Jeg fødte dig… Nu væmmes jeg over mig selv, over at have båret dig.  
+   Hver latter, hver gestus, hver tanke – alt fremmed.  
+      Min krop husker dig, men mit hjerte fornægter.
 
-   Jeg holder Zehra tæt.  
-      Hun lever, hun ånder, hun er min.  
-         Dig, Cihan, kaster jeg bag mig som noget sygt.
+Jeg holder Zehra tæt.  
+   Hun lever, hun ånder, hun er min.  
+      Dig, Cihan, kaster jeg bag mig som noget sygt.
 
-   Hvordan kan man elske et barn og samtidig føle lettelse over dets død?  
-      Jeg ved det nu.  
-         Jeg er mor – men ikke for dig
+Hvordan kan man elske et barn og samtidig føle lettelse over dets død?  
+   Jeg ved det nu.  
+      Jeg er mor – men ikke for dig
 
-Zehra: 	Ozan, nu er det kun dig, der kan videreføre slægten.  
-	Skal vi ære fars minde og holde sammen som familie?  
-	Eller fortjener vi at blive glemt af tiden selv?
+\~\~\~ Zehra \~\~\~  
+Ozan, nu er det kun dig, der kan videreføre slægten.  
+Skal vi ære fars minde og holde sammen som familie?  
+Eller fortjener vi at blive glemt af tiden selv?
 
-Mira:	Vi står alene.  
-      Cihan væk – Konstantinopel, langt væk,  
-         – hans skæbne uden for vores hænder.
+\~\~\~ Mira \~\~\~  
+Vi står alene.  
+   Cihan væk – Konstantinopel, langt væk,  
+      – hans skæbne uden for vores hænder.
 
-   Politiet? Trossamfundet? Ingen sikkerhed. Ingen fred.  
-      Slagteriet – vores domæne, vores kontrol.  
-         Kød. Blod. Bacon. Nært beslægtet. Nært forståeligt.
+Politiet? Trossamfundet? Ingen sikkerhed. Ingen fred.  
+   Slagteriet – vores domæne, vores kontrol.  
+      Kød. Blod. Bacon. Nært beslægtet. Nært forståeligt.
 
-   Vi kan redde fremtiden.  
-      Overleve.  
-         Fortsætte.
+Vi kan redde fremtiden.  
+   Overleve.  
+      Fortsætte.
 
-   Jeg mærker Zehra ved min side.  
-      Hun fryser, ryster, men hendes øjne glimter.  
-         Vi kan. Vi må.
+Jeg mærker Zehra ved min side.  
+   Hun fryser, ryster, men hendes øjne glimter.  
+      Vi kan. Vi må.
 
-   En beslutning, en tanke – fødes som et dyr i mørket, instinktiv, brutal.  
-      Et valg, et ansvar, en handling bliver til virkelighed.  
-         Vi må spise Cihan – beviset væk.
+En beslutning, en tanke – fødes som et dyr i mørket, instinktiv, brutal.  
+   Et valg, et ansvar, en handling bliver til virkelighed.  
+      Vi må spise Cihan – beviset væk.
 
-   Ikke med glæde, ikke med had.  
-      Med logik. Med nødvendighed.  
-         Med overlevelse indlejret i hvert bid.
+Ikke med glæde, ikke med had.  
+   Med logik. Med nødvendighed.  
+      Med overlevelse indlejret i hvert bid.
 
-   Vi overlever.  
-      Vi holder sammen.  
-         Vi er mordere.  
-            Vi er familie.
+Vi overlever.  
+   Vi holder sammen.  
+      Vi er mordere.  
+         Vi er familie.
 
-Zehra: 	Cihan, dit svin, nej undskyld til svinet.  
-	Mennesket er jo din nære slægtning,  
-	omend din integritet og moral langt højere.  
-	Smager Cihans bacon lige så godt som dit?  
-	Eller vil bismagen af foragt trænge igennem?
+\~\~\~ Zehra \~\~\~  
+Cihan, dit svin, nej undskyld til svinet.  
+Mennesket er jo din nære slægtning,  
+omend din integritet og moral langt højere.  
+Smager Cihans bacon lige så godt som dit?  
+Eller vil bismagen af foragt trænge igennem?
 
-Ozan: Cihan er rejst hjem. Det er det, vi fortæller dem. Politiet ville tro mig, det måtte de. Men trossamfundet … de ville aldrig tilgive. Vi ville være jaget vildt for evig tid med offentlig stening som belønning, skulle vi falde i deres grumme klør. Jeg holder familien samlet, så godt jeg kan. Mor har en lille måned til at holde slagteriet i gang. Når tiden løber ud, må det lukke, lønnen vil udeblive. Konkurs. Vi har gjort, hvad vi kunne. Nu er det op til os at leve videre – uden ham, uden Cihan.
+\~\~\~ Ozan \~\~\~  
+Cihan er rejst hjem. Det er det, vi fortæller dem. Politiet ville tro mig, det måtte de. Men trossamfundet … de ville aldrig tilgive. Vi ville være jaget vildt for evig tid med offentlig stening som belønning, skulle vi falde i deres grumme klør. Jeg holder familien samlet, så godt jeg kan. Mor har en lille måned til at holde slagteriet i gang. Når tiden løber ud, må det lukke, lønnen vil udeblive. Konkurs. Vi har gjort, hvad vi kunne. Nu er det op til os at leve videre – uden ham, uden Cihan.
 
 \~\~\~ Korleder \~\~\~  
 O Mira, moder og hustru, besyng os sandhed.  
 Kunne du have stoppet kniven, før den blev løftet?  
 Standset Cihans vanvid, før hadet brændte frit?
 
-Mira:	Var det min skyld, hans vrede?  
-      Han fik samme opdragelse som de andre,  
-         samme bord, samme seng, samme kærlighed.  
+\~\~\~ Mira \~\~\~  
+Var det min skyld, hans vrede?  
+   Han fik samme opdragelse som de andre,  
+      samme bord, samme seng, samme kærlighed.  
 
-   Og dog blev han hård som sten, hvor de andre bløde.  
-      Nej – det var troens onde tunger,  
-         de mænd, der hviskede i hans øre dag for dag.
+Og dog blev han hård som sten, hvor de andre bløde.  
+   Nej – det var troens onde tunger,  
+      de mænd, der hviskede i hans øre dag for dag.
 
 \~\~\~ Korleder \~\~\~  
 Og alligevel – skjuler du en hemmelighed.  
 Var der intet, du kunne have gjort, før alt gik galt?  
 
-Mira:	En hemmelighed, ja… to, om jeg skal være ærlig.  
-      Udskudt katastrofen, ja — men ikke forhindret.  
-         Skæbnen dikterede Cihans vej; hans fodspor var sat.
+\~\~\~ Mira \~\~\~  
+En hemmelighed, ja… to, om jeg skal være ærlig.  
+   Udskudt katastrofen, ja — men ikke forhindret.  
+      Skæbnen dikterede Cihans vej; hans fodspor var sat.
 
-   Men jeg selv – jeg levede i skyggen.  
-      Lod som om, jeg var den enfoldige hustru,  
-         som ej forstod forretning, ej kunne læse tal.
+Mit forræderi langt større end Zehras.  
+	Min mand fornedret, Cihan ført bag lyset.  
+		Troen gjort til skamme. 
 
-   Min mand var mand – og jeg spillede min rolle.  
-      Men sandheden?  
-         Jeg tænkte, regnede, planlagde i det skjulte.
+Men jeg selv – jeg levede i skyggen.  
+   Lod som om, jeg var den enfoldige hustru,  
+      som ej forstod forretning, ej kunne læse tal.
 
-   En dag tog jeg hans skjulte kasse – de sorte penge.  
-      Jeg lånte dem, kun i ganske få uger,  
-         lagde samme beløb tilbage.  
+Min mand var mand – og jeg spillede min rolle.  
+   Men sandheden?  
+      Jeg tænkte, regnede, planlagde i det skjulte.
 
-   Men siden voksede det, investering på investering,  
-      og i stilhed blev det til en sum,  
-         stor nok til at redde os, stor nok til at stå alene.  
+En dag tog jeg hans skjulte kasse – de sorte penge.  
+   Jeg lånte dem, kun i ganske få uger,  
+      lagde samme beløb tilbage.  
 
-   Så nej — jeg kunne ikke have stoppet Cihans hånd.  
-      Men jeg kunne — og kan — bære familien videre.  
-         Det er min byrde, min styrke, min sandhed.
+Men siden voksede det, investering på investering,  
+   og i stilhed blev det til en sum,  
+      stor nok til at redde os, stor nok til at stå alene.  
+
+Så nej — jeg kunne ikke have stoppet Cihans hånd.  
+   Men jeg kunne — og kan — bære familien videre.  
+      Det er min byrde, min styrke, min sandhed.
 
 ### 2039\.
 
@@ -449,7 +466,7 @@ sådan renses blodet for Cihans skygge.
 
 Som sønnen på korset og Cihan på gulvet,  
 ofret af faderen, ofret af nødvendigheden,  
-de spiser hans legme, drikker hans blod.  
+de spiser hans legeme, drikker hans blod.  
 For historien må aldrig gentage sig selv.
 
 \~\~\~ Zehra \~\~\~  
