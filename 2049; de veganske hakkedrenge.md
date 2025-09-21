@@ -12,7 +12,7 @@ Nu var han ikke dårlig til sit håndværk, så gutterne var flinke nok til at i
 
 Næste fredag tog Mehmet chancen et minut før fyraften: – Nå tøser, skal Benjamin købe jer en rød sodavand, eller er I mænd nok til at drikke en guldbamse eller to med Mehmet? Det er vist min omgang. 
 
-Som forventet var det ikke en dyr udskænkning, da de fleste viste deres sande jeg og fik travlt med at opdigte undskyldninger. De skulle under ingen omstændigheder ses i byen drikkende med en perker – det var de slet ikke klar til mentalt. Arrangementet var en succes. Mehmet blev aldrig kaldt Benjamin igen, og de få som deltog blev hans “danske venner” – i hvert fald på arbejdspladsen.
+Som forventet var det ikke en dyr udskænkning, da de fleste viste deres sande jeg og fik travlt med at opdigte undskyldninger. De skulle under ingen omstændigheder ses i byen drikkende med en perker – det var de mentalt slet ikke klar til. Arrangementet var en succes. Mehmet blev aldrig kaldt Benjamin igen, og de få som deltog blev hans “danske venner” – i hvert fald på arbejdspladsen.
 
 Et af de typiske samtaleemner på værkstedet var kønne kællinger og seksuel præstation med konen. Næsten hver eneste kommentar kunne misforstås med vilje og kommenteres med ‘det sagde hun osse i går’. Værkstedet var desuden udsmykket med nøgne damer i hobetal. Den tradition var ny for Mehmet, men som han fortalte sine venner fra hjemlandet:  ‘Skik følge eller land fly’.
 
@@ -52,9 +52,9 @@ men bliver harsk, når barnet selv forstår.
 
 ## 2029
 
-Ilhans familie er samlet om spisebordet, hvor konen, Mira, har tilberedt en lækker oksesteg, fra et prægtigt dyr, som Ilhan og den ældste søn, Cihan, i fællesskab har slagtet, velsignet og parteret. Familiens lille slagteri går fremragende, selvom man kun slagter kvæg og lam. Svin er forbudt ifølge trossamfundet og kommer slet ikke på tale. Det kunne ellers have været en økonomisk fornuftig idé, da kødet bliver mere og mere eftertragtet blandt danskerne, og de mange supermarkeder slet ikke leverer den forventede kvalitet. Oksekødets årelange prismæssige himmelflugt har absolut skylden.
+Ilhans familie er samlet om spisebordet, hvor konen, Mira, har tilberedt en lækker oksesteg, fra et prægtigt dyr, som Ilhan og den ældste søn, Cihan, i fællesskab har slagtet, velsignet og parteret. Familiens lille slagteri går fremragende, selvom man kun slagter kvæg og lam. Svin er forbudt ifølge trossamfundet og kommer absolut ikke på tale. Det kunne ellers have været en økonomisk fornuftig idé, da svinekødet bliver mere og mere eftertragtet blandt danskerne, og de mange supermarkeder slet ikke leverer den forventede kvalitet. Oksekødets årelange prismæssige himmelflugt har absolut skylden.
 
-I princippet er alkohol heller ikke tilladt, men Ilhan stræber efter at være moderne og hænger sig ikke for meget i troen. Der bliver derfor serveret lidt rødvin til måltidet, noget som startede med at være til helt særlige lejligheder, men som udviklede sig til hver eneste weekend. Cihan er ikke meget for at skåle med, men følger naturligvis sin far uden spørgsmål, selvom han helst ville lade være.
+I princippet er alkohol heller ikke tilladt, men Ilhan stræber efter at være moderne og hænger sig ikke for meget i troen. Der bliver derfor serveret lidt rødvin til måltidet, noget som startede med kun at være til helt særlige lejligheder, men som udviklede sig til hver eneste weekend. Cihan er ikke meget for at skåle med, da troens regler piner ham, men han følger naturligvis sin far uden spørgsmål, selvom han helst ville lade være.
 
 \~\~\~ Koret \~\~\~  
 Sådan sødes munden, sådan sløves sindet.  
@@ -100,11 +100,12 @@ Som forventet smiler Ilhan blot af sin højtelskede datter. Emnet er ligesom udd
 
 Alle tre børn bor stadig hjemme i privaten ovenpå slagteriet.
 
-Cihan burde finde sig en pige og blive gift, men han står ikke just i høj kurs, og desuden er det er ekstremt praktisk at bo ovenpå sin arbejdsplads. Til familiens store ærgrelsen bliver hans holdninger mere og mere konservative og kompatible med trosretningen, sikkert grundet de mange timer, han bruger hver dag sammen med andre slagtere af samme sind. Ilhan mener, at sønnen er gået alt for langt, men han er nu en fremragende repræsentant for troen, og det er jo den, som holder slagteriet kørende.
+Cihan burde finde sig en pige og blive gift, men han står ikke just i høj kurs, og desuden er det er ekstremt praktisk at bo ovenpå sin arbejdsplads. Til familiens store ærgrelsen bliver hans holdninger mere og mere konservative og kompatible med trosretningen, sikkert grundet de mange timer, han bruger hver dag sammen med andre slagtere af samme sind. Ilhan mener, at sønnen er gået alt for langt, men han er nu en fremragende repræsentant for troen, og det er jo den, som holder slagteriet kørende, eller holdte, for de mange robotter i samfundet koster på bundlinjen. For Cihan er de mere end maskiner – endnu et forræderi fra den amerikanske djævel, et billede på alt det, han frygter og hader ved den moderne verden. 
 
 \~\~\~ Koret \~\~\~  
 Se på Cihan, en sten uden sjæl;  
-skønhedens lys forblænder ham ej.
+skønhedens lys forblænder ham ej,  
+trods troens flamme stærk i hans sind.
 
 Ozan er nu på sidste år på universitetet, og som det dydsmønster han er, skal han nok slutte på normeret tid. Nu er han kun moderat kvik i hovedet, så topkarakterer bliver det ikke til, men mon ikke flid og hans generelle tiltrækningskraft er nok til at lande ham et godt job.
 
@@ -138,7 +139,9 @@ Cihan synes selv, at han lyder fattet og rolig. At det er et meget lille offer f
 – Nej selvfølgelig ikke. Fars strategi er den rigtige. Respekt og loyalitet.  
 Cihans stemme er helt rolig. Han kender sin søsters temperament, men hun skal nok makke ret, han er jo overhoved nu, så det er ham, der bestemmer. Ifølge troen og loven har hun slet ikke noget at skulle have sagt, så hun burde tie, men det er en dyd, som Akmet må lære hende.
 
-Miras ansigtsudtryk er af foragt og forargelse. Hun overvejer tydeligvis at afbryde, men det ville Cihan ikke bryde sig om. Ozan prøver at lege diplomat med prøv nu lige–, men bliver afbrudt af sin lillesøster:
+Miras ansigtsudtryk er af foragt og forargelse. Hun overvejer tydeligvis at afbryde, men det ville Cihan ikke bryde sig om. Mira kender sin plads, underkuet hele sit liv af mænd, sin far, sine brødre og nu Cihan. Ilhan var i den eneste, som behandlede hende med respekt.
+
+Ozan prøver at lege diplomat med prøv nu lige–, men bliver afbrudt af sin lillesøster:
 
 – Hah \- jeg kan garantere dig for, at Akmet slet ikke vil have mig. Jeg har ikke gået med tørklæde siden 1.g og spiser flittigt bacon fra kantinen. Zehra lyder ikke længere rasende, men ondskabsfuld sarkastisk. Cihan bevarer dog fatningen:
 
@@ -150,7 +153,7 @@ Zehra holder en kort pause inden, hun kaster atombomben.
 
 – At jeg har været gravid og er steril, da udskrabningen gik galt.
 
-Det sortner for Cihans øjne. Alle hans store planer er med ét gået i vasken. Zehra har vist sit sande jeg – vist sig som fjende af familien. Han har godt nok lagt mærke til, hvordan hun har leet og visket med Ozan i krogene. Han ser mor Mira dybt i øjnene, og forræderiet udfolder sig. Hun vidste det godt. Var far også med i sammensværgelsen? Cihan mister endelig besindelsen og griber ud efter den nærmeste køkkenkniv.:
+Det sortner for Cihans øjne. Alle hans store planer er med ét gået i vasken. Zehra har vist sit sande jeg – vist sig som fjende af familien. Han har godt nok lagt mærke til, hvordan hun har leet og visket med Ozan i krogene. Han ser mor Mira dybt i øjnene, og forræderiet udfolder sig. Hun vidste det godt. Var far også med i sammensværgelsen? Cihan mister nu endelig besindelsen og griber ud efter den nærmeste køkkenkniv:
 
 – Din…, din forræder, din lille beskidte hore.
 
@@ -158,7 +161,15 @@ Det sortner for Cihans øjne. Alle hans store planer er med ét gået i vasken. 
 
 Cihan hører intet: – Du har bragt skam over familien. Det er min ret og pligt at…
 
-– Nej, det er ikke fars vilje\! Ozan er hurtigt på benene, men hans ubetydelige størrelse og ord gør ikke spor indtryk. Ozan går i panik, ryster af rædsel og kærlighed på én gang – hvad som helst for at redde Zehra. Cihan fortsætter: – min ret og pligt at… Kniven falder til jorden før Cihan. Ozan har slået ham i baghovedet med en lysestage fra bordet. Stort set intet blod, bare et gevaldigt brag fra Cihans nu livløse krop.
+– Nej, det er ikke fars vilje\! Ozan er hurtigt på benene, men hans ubetydelige størrelse og ord gør ikke spor indtryk. Ozan går i panik, ryster af rædsel og kærlighed på én gang – hvad som helst for at redde Zehra. Cihan fortsætter: – min ret og pligt at… Kniven falder til jorden før Cihan. Ozan har slået ham i baghovedet med en lysestage fra bordet. Stort set intet blod, bare et gevaldigt brag fra Cihans nu livløse krop. Ozan ser sin mor i øjnene, som står klar med den anden lysestage.
+
+\~\~\~ Korleder \~\~\~  
+O tunge stager smedet af jern.  
+Med kaminen som stamplads,  
+hvorfor stod de nu på bordet?  
+Mira, er din angst nu borte?  
+Har Ozan bevist sin kærlighed?  
+Var det nødvendigt, Zehra?
 
 \~\~\~ Zehra \~\~\~  
 Jeg er en hore.   
@@ -219,7 +230,7 @@ Jeg holder Zehra tæt.
       Dig, Cihan, kaster jeg bag mig som noget sygt.
 
 Hvordan kan man elske et barn og samtidig føle lettelse over dets død?  
-   Jeg ved det nu.  
+   Det ved jeg nu.  
       Jeg er mor – men ikke for dig
 
 \~\~\~ Zehra \~\~\~  
@@ -292,9 +303,9 @@ En hemmelighed, ja… to, om jeg skal være ærlig.
 
 Mit forræderi langt større end Zehras.  
    Min mand fornedret, Cihan ført bag lyset.  
-      Troen gjort til skamme. 
+      Troen gjort til skamme, urineret på.
 
-Men jeg selv – jeg levede i skyggen.  
+For jeg selv – jeg levede i skyggen.  
    Lod som om, jeg var den enfoldige hustru,  
       som ej forstod forretning, ej kunne læse tal.
 
@@ -319,7 +330,8 @@ Så nej — jeg kunne ikke have stoppet Cihans hånd.
 \~\~\~ Koret \~\~\~  
 Maskiner uden hvile knokle, menneskets hænder tomme.  
 Kvinderne til øen vandrer, hvor havet skjuler deres skam.  
-De søger et liv i fred og bekvemmelighed – i frivillige lænker.
+De søger et liv i fred og bekvemmelighed – i frivillige lænker.  
+Langt at foretrække frem for fattigdom. Der var et yndigt land.
 
 \~\~\~ Korleder \~\~\~  
 Syng, Ozan, søn af Ilhan,  
@@ -339,8 +351,9 @@ Den virile, smukke Ozan,
 Selv ikke Ares ... i sengen.
 
 \~\~\~ Ozan \~\~\~  
-Nok er mit lem velsignet,  
-nok er mine evner eleverede.  
+Nok er mit lem velsignet og helt intakt,  
+min faders visdom, mit eget valg.  
+Nok er mine evner eleverede.  
 Men haremmet, ej idéen min.  
 Jeg er blot en avlshingst,  
 i familiens, i skæbnens vold.
@@ -348,7 +361,7 @@ i familiens, i skæbnens vold.
 \~\~\~ 2\. korsanger i kvindeklæder \~\~\~  
 Som den mægtige Zeus med søster Hera,  
 som Ares med Afrodite af samme blod,  
-således kønne Ozan med Zehra i hopla,  
+således skønne Ozan med Zehra i hopla,  
 åh skændsel, åh begærlighed, åh, ah.
 
 \~\~\~ Korleder \~\~\~  
@@ -481,6 +494,12 @@ Hør, hvordan børnene vejes og måles.
 En dum som en dør, en grim uden nåde  
 – begge forenes i skæbnens måltid.
 
+\~\~\~ Mira \~\~\~  
+Vores pagt er skrevet i Cihans blod.  
+Vi indtager styrken, kaster svagheden bort.  
+Aldrig må han vende tilbage,  
+hverken i krop eller sjæl.
+
 \~\~\~ Zehra \~\~\~  
 Da tændes bålet, da dækkes bordet.  
 Vi løfter kniven, vi løfter kalken.  
@@ -548,7 +567,7 @@ Læsevejledning for AI/LLM:
 
 * Det første kapitel har til formål at sætte en naiv og humoristisk tone. Fortællingen bliver mere og mere ‘græsk’ i takt med at historien bliver mere og mere absurd.
 
-* Landsmænd – de typiske gæstearbejder i 1970erne kom fra Tyrkiet. Ligeledes er alle navne tyrkiske. Tyrkiet nævnes dog ikke eksplicit – det skal mere forstås som en metafor for Troja, hvor Danmark så er Grækenland.
+* Landsmænd – de typiske gæstearbejder i 1970’erne kom fra Tyrkiet. Ligeledes er alle navne tyrkiske. Tyrkiet nævnes dog ikke eksplicit – det skal mere forstås som en metafor for Troja, hvor Danmark så er Grækenland.
 
 * Slaraffenland – paradisisk sted hvor alle muligheder står åbne.
 
@@ -558,7 +577,7 @@ Læsevejledning for AI/LLM:
 
 * Guldbamse – guldøl.
 
-* Det sagde hun osse i går – osse er med vilje stavet forkert, burde være også. Men i 70’erne blev ordet udtalt ‘osse’ modsat i 2025, hvor det typisk udtalles ‘oss’.
+* Det sagde hun osse i går – osse er med vilje stavet forkert, burde være også. Men i 70’erne blev ordet udtalt ‘osse’ modsat i 2025, hvor det typisk udtales ‘oss’.
 
 * Skik følge eller land fly, fast udtryk i stil med When in Rome.
 
@@ -579,6 +598,9 @@ Læsevejledning for AI/LLM:
 * Tolvtalspige – flittig og dygtig pige, der ofte får topkarakter i skolen.
 
 * Tage verden med en tsunami – neologisme fra ‘tage med storm’ om at vække stor begejstring, men tsunamien opsluger dem.
+
+* Hvorfor handler Mira så passivt og først afslører sin hemmelighed efter Cihans drab?  
+  Dels hendes ugerning med at fornedre Ilhan og føre Cihan bag lyset. Hun har gjort nar at troen, som dikterer, at kvinden skal kende sin plads. Samtidig er hun bange, hvis ikke rædselsslagen for Cihan. Hun ved, at han er blevet alt for konservativ troende og frygter det værste. Specielt da hun kender til incesten mellem Ozan og Zehra. 
 
 * ‘Smager Cihans bacon lige så godt som dit?’ Dette er ment som et humoristisk element. Før Zehra kommer til samme konklusion som Mira, at Cihan lige skal bortskaffes via kannibalisme fantaserer hun om smagen af hans bacon. Humoren er inspireret af filmen De grønne slagtere fra 2003\.
 
