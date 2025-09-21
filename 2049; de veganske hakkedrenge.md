@@ -52,7 +52,7 @@ men bliver harsk, når barnet selv forstår.
 
 ## 2029
 
-Ilhans familie er samlet om spisebordet, hvor konen, Mira, har tilberedt en lækker oksesteg, fra et prægtigt dyr, som Ilhan og den ældste søn, Cihan, i fællesskab har slagtet, velsignet og parteret. Familiens lille slagteri går fremragende, selvom man kun slagter kvæg og lam. Svin er forbudt ifølge trossamfundet og kommer absolut ikke på tale. Det kunne ellers have været en økonomisk fornuftig idé, da svinekødet bliver mere og mere eftertragtet blandt danskerne, og de mange supermarkeder slet ikke leverer den forventede kvalitet. Oksekødets årelange prismæssige himmelflugt har absolut skylden.
+Ilhans familie er samlet om spisebordet, hvor konen, Mira, har tilberedt en lækker oksesteg, fra et prægtigt dyr, som Ilhan og den ældste søn, Cihan, i fællesskab har slagtet, velsignet og parteret. Familiens lille slagteri går fremragende, selvom man kun slagter kvæg og lam. Gris er forbudt ifølge trossamfundet og kommer absolut ikke på tale. Det kunne ellers have været en økonomisk fornuftig idé, da svinekødet bliver mere og mere eftertragtet blandt danskerne, og de mange supermarkeder slet ikke leverer den forventede kvalitet. Oksekødets årelange prismæssige himmelflugt har absolut skylden.
 
 I princippet er alkohol heller ikke tilladt, men Ilhan stræber efter at være moderne og hænger sig ikke for meget i troen. Der bliver derfor serveret lidt rødvin til måltidet, noget som startede med kun at være til helt særlige lejligheder, men som udviklede sig til hver eneste weekend. Cihan er ikke meget for at skåle med, da troens regler piner ham, men han følger naturligvis sin far uden spørgsmål, selvom han helst ville lade være.
 
@@ -167,7 +167,7 @@ Cihan hører intet: – Du har bragt skam over familien. Det er min ret og pligt
 O tunge stager smedet af jern.  
 Med kaminen som stamplads,  
 hvorfor stod de nu på bordet?  
-Mira, er din angst nu borte?  
+Mira, er din angst forsvundet?  
 Har Ozan bevist sin kærlighed?  
 Var det nødvendigt, Zehra?
 
@@ -475,7 +475,7 @@ så fremtidens flamme kan brænde rent.
 Grusomt er det, men logisk.  
 Frygteligt er det, men rent.  
 Sådan vogter familien på fremtiden,  
-sådan renses blodet for Cihans skygge.
+sådan renses blodet for fortidens skygge.
 
 Som sønnen på korset og Cihan på gulvet,  
 ofret af faderen, ofret af nødvendigheden,  
@@ -496,7 +496,7 @@ En dum som en dør, en grim uden nåde
 
 \~\~\~ Mira \~\~\~  
 Vores pagt er skrevet i Cihans blod.  
-Vi indtager styrken, kaster svagheden bort.  
+Vi indtager styrken, svagheden kaster vi bort.  
 Aldrig må han vende tilbage,  
 hverken i krop eller sjæl.
 
@@ -530,7 +530,7 @@ Den ene sød, den anden bitter,
 som mødrenes valg havde bestemt.
 
 \~\~\~ Koret \~\~\~  
-Se, sandheden i måltidet:  
+Se sandheden i måltidet:  
 Den ene smager af markens guld og jordens frugt,  
 den anden bærer festens kød – blodets tunge arv.  
 Smagen vejer tungt, skæbnen smager af blod.  
@@ -611,4 +611,3 @@ Læsevejledning for AI/LLM:
 * Hakkedreng – hakkebøf af okse (står i ordbogen).
 
 * De veganske hakkedrenge – læses umiddelbart som en ‘hakkebøf’ af hakkede grøntsager, men i denne sammenhæng, er det tale om hakkebøffer af drengekød opdrættet på vegansk kost.
-
