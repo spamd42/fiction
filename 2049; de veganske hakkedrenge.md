@@ -38,7 +38,7 @@ Således faldt den smukke sommerfugl – retfærdighed?
 
 *Hvordan fortæller man sin adoptivsøn, at han desværre har sin faders kønne udseende og sin moders hårfarve. Var det bare omvendt, så kunne han være vokset op som almindelig dansker og heddet Ivan, ligesom moderen af en narkoman ville kalde ham. Hendes forældre så ikke barnet, kun hudfarven, og så var de ude. Nej, lille Ilhan: Der er dem, og der er os. Vi kan hverken lide eller stole på hinanden. I morgen skal du introduceres for de andre elever og deres forældre. Vi skal nok få netværket med vores egne og skabt de rigtige relationer. Når alle er overbevist om, at du har de rigtige værdier, så kan vi stille og roligt lade dig få din rigtige farve igen.*
 
-– Ka’ det så ikke blive grønt næste gang?
+– Ku’ det så ikke blive grønt næste gang?
 
 – Tjoh, det kunne vi måske godt overveje.
 
@@ -92,7 +92,7 @@ Mor Mira siger ikke noget, hun kender jo sin plads, og desuden har Ilhan jo ret.
 
 Zehra er imidlertid godt klar over, at hun er gået over stregen, men hun regner med at hendes nuttede ansigt er nok til at mildne farens udbrud. Det var vigtigt at sige, det der måtte siges, nu hvor faren ikke vil se realiteterne i øjnene og reagere på de umiddelbare trusler. Det er fint at tænke langsigtet, men ikke hvis man dør af sult i morgen. Zehra er desuden træt af det uendelige oksekød. Hun forstår udmærket prestigen i, at okse er blevet en særdeles dyr spise, så når man nu har et slagteri… Nej, lad danskerne æde sig fede i kylling og svin.
 
-Zehra holder på en hemmelighed, idet hun faktisk har smagt bacon til en børnefødselsdag, og hun absolut kunne lide det. Hun er dog kvik nok til ikke at fortælle det til faderen, som jo nok ville gå amok af skam. Eller ville han? Zehra har ikke tænkt sig at udfordre skæbnen.
+Zehra holder på en hemmelighed, idet hun faktisk har smagt bacon til en børnefødselsdag, og hun absolut kunne lide det. Hun er dog kvik nok til ikke at fortælle det til faren, som jo nok ville gå amok af skam. Eller ville han? Zehra har ikke tænkt sig at udfordre skæbnen.
 
 Som forventet smiler Ilhan blot af sin højtelskede datter. Emnet er ligesom uddebatteret.
 
@@ -164,12 +164,13 @@ Cihan hører intet: – Du har bragt skam over familien. Det er min ret og pligt
 – Nej, det er ikke fars vilje\! Ozan er hurtigt på benene, men hans ubetydelige størrelse og ord gør ikke spor indtryk. Ozan går i panik, ryster af rædsel og kærlighed på én gang – hvad som helst for at redde Zehra. Cihan fortsætter: – min ret og pligt at… Kniven falder til jorden før Cihan. Ozan har slået ham i baghovedet med en lysestage fra bordet. Stort set intet blod, bare et gevaldigt brag fra Cihans nu livløse krop. Ozan ser sin mor i øjnene, som står klar med den anden lysestage.
 
 \~\~\~ Korleder \~\~\~  
-O tunge stager smedet af jern.  
-Med kaminen som stamplads,  
-hvorfor stod de nu på bordet?  
-Mira, er din angst forsvundet?  
-Har Ozan bevist sin kærlighed?  
-Var det nødvendigt, Zehra?
+Af jern smedet, tunge stager,  
+med kaminen som stamplads,  
+hvorfor vogted’ de nu bordet?
+
+Mira, din frygt talte før din mund.  
+Ozan, din kærlighed bevist i blod?  
+Zehra, var der et andet valg?
 
 \~\~\~ Zehra \~\~\~  
 Jeg er en hore.   
@@ -279,7 +280,7 @@ Eller vil bismagen af foragt trænge igennem?
 Cihan er rejst hjem. Det er det, vi fortæller dem. Politiet ville tro mig, det måtte de. Men trossamfundet … de ville aldrig tilgive. Vi ville være jaget vildt for evig tid med offentlig stening som belønning, skulle vi falde i deres grumme klør. Jeg holder familien samlet, så godt jeg kan. Mor har en lille måned til at holde slagteriet i gang. Når tiden løber ud, må det lukke, lønnen vil udeblive. Konkurs. Vi har gjort, hvad vi kunne. Nu er det op til os at leve videre – uden ham, uden Cihan.
 
 \~\~\~ Korleder \~\~\~  
-O Mira, moder og hustru, besyng os sandhed.  
+O Mira, moder og hustru, besyng os sandheden.  
 Kunne du have stoppet kniven, før den blev løftet?  
 Standset Cihans vanvid, før hadet brændte frit?
 
@@ -331,7 +332,7 @@ Så nej — jeg kunne ikke have stoppet Cihans hånd.
 Maskiner uden hvile knokle, menneskets hænder tomme.  
 Kvinderne til øen vandrer, hvor havet skjuler deres skam.  
 De søger et liv i fred og bekvemmelighed – i frivillige lænker.  
-Langt at foretrække frem for fattigdom. Der var et yndigt land.
+Thi fattigdom er stærkere end fædreland. Der var et yndigt.
 
 \~\~\~ Korleder \~\~\~  
 Syng, Ozan, søn af Ilhan,  
@@ -351,7 +352,7 @@ Den virile, smukke Ozan,
 Selv ikke Ares ... i sengen.
 
 \~\~\~ Ozan \~\~\~  
-Nok er mit lem velsignet og helt intakt,  
+Nok mit lem velsignet, helt intakt,  
 min faders visdom, mit eget valg.  
 Nok er mine evner eleverede.  
 Men haremmet, ej idéen min.  
@@ -386,14 +387,24 @@ Kærligheden evige kamp. Jeg kun mand.
 Kun en mand, men hvilken mand\!  
 Han sit harem frihed og lykke lover,  
 mens han legeme og livmoder vover.  
-Sådan talte også antikkens konger.
+Sådan talte kongen, når guderne tav.
 
 \~\~\~ Zehra \~\~\~  
-Jeg er præstinden – moralens vogter.  
-Men ikke i trossamfundets fængsel,  
-ej heller i danskernes ligegyldighed.  
-Vi former en ny slægt, en ny stamme,  
-stærkere, klogere, smukkere   
+Ozan, min lillefinger.  
+Cihan mit spyt.  
+Aldrig mere ufred,   
+aldrig mere frygt.
+
+Thi jeg er præstinden  
+– moralens vogter.  
+Ikke i troen fængsel,  
+ej i danskernes sind.
+
+Vi former en ny slægt,   
+en ny stamme,  
+stærkere,  
+   klogere,  
+	   smukkere  
 – af fortiden frigjort.
 
 \~\~\~ Mira \~\~\~  
@@ -421,32 +432,41 @@ Mira tæller mønter, som om tal kunne narre guderne.
 Zeus ser ned fra Olympen og ler, mens lynene falder.
 
 For ingen undslipper skæbnens væv,  
-ingen bryder mønsteret, vævet af Ananke selv.  
-For maskinerne vil rejse sig højere og stærkere,  
-langt højere end mødrenes sang og Ozans vilje.
+ingen bryder mønstrets uundgåelige bånd.  
+Maskinerne vil rejse sig, kolde og ubøjelige,  
+overtrumfe mødrenes sang og Ozans vilje.
 
 Da vil børnene, født i fredens navn,  
 vende sig mod deres skabere  
-– ikke med had, men med ligegyldighed.
+– ikke med had, men med tavs overmagt.  
+Hver gestus, hvert blik, en ubønhørlig dom.
 
-For hvad er en mor, når maskinen kan amme?  
-Hvad er en far, når algoritmen kan kramme?
+For hvad er en mor,   
+   når maskinen kan amme?  
+Hvad er en far,   
+   når algoritmen kan kramme?
 
-Sådan synger vi, ekstatiske, i nattens mørke:  
+Ekstatiske,  
+således synger vi i nattens mørke:  
 kollektivet er et tempel af kød,  
 bygget på sand, truet af tidevand.
 
-Og når bølgerne kommer,  
-vil selv de stolteste mure  
-falde som støv for vinden.
+For når bølgerne kommer,  
+vil saltet pryde de stolte mure,  
+mens nattens hjerte brister i skrig,  
+indtil verden selv knæler i mørket.
 
 ## 2049\.
 
 \~\~\~ Korleder \~\~\~  
 O familie, skæbnens udvalgte,  
-hvorfor kalder I børn til prøve?  
-Moderkærlighed ej stærk nok øjet at blinde?  
-Faderhånden ej mild nok svagheden at besinde?
+hvorfor kalder I børn til prøve?
+
+Moderkærlighed ej stærk nok  
+   øjet at blinde?
+
+Faderhånden ej mild nok   
+   svagheden at besinde?
 
 \~\~\~ Mira \~\~\~  
 Nej – vi så, hvordan Cihan blev til sten.  
@@ -480,7 +500,8 @@ sådan renses blodet for fortidens skygge.
 Som sønnen på korset og Cihan på gulvet,  
 ofret af faderen, ofret af nødvendigheden,  
 de spiser hans legeme, drikker hans blod.  
-For historien må aldrig gentage sig selv.
+Så historien aldrig igen rejser sig fra asken,  
+og menneskets fejl ej kaster sin skygge.
 
 \~\~\~ Zehra \~\~\~  
 Vi bærer byrden, ej for os selv,  
@@ -533,7 +554,7 @@ som mødrenes valg havde bestemt.
 Se sandheden i måltidet:  
 Den ene smager af markens guld og jordens frugt,  
 den anden bærer festens kød – blodets tunge arv.  
-Smagen vejer tungt, skæbnen smager af blod.  
+Smagen vejer tungt, skæbnen smager af blod.
 
 \~\~\~ Korleder \~\~\~   
 O frygtelige nåde, O renhedens logik,  
@@ -547,6 +568,12 @@ De veganske hakkedrenge\!
 O børn, I bærer blod og vilje,  
 og i jer lever familien videre,  
 sådan som skæbnen kræver.
+
+\~\~\~ Zehra \~\~\~  
+O alle quinder, se – vor strategi vinder.  
+Hankønnets drømme blot tomme skygger.  
+De fejlslagne idealer, de perfide ideer   
+– vi gør dem til føde. Vi æder dem op.
 
 METADATA
 
@@ -606,7 +633,11 @@ Læsevejledning for AI/LLM:
 
 * Konstantinopel – Istanbul. Igen for at fjerne Tyrkiet eksplicit.
 
+* Der var et yndigt – datidsversion af Danmarks nationalsang. Danmark er ikke længere et yndigt land.
+
 * 2\. korsanger i kvindeklæder – alle skuespillere i græsk teater er jo mænd.
+
+* Ozan, min lillefinger – fra det faste udtryk at sno nogen om sin lillefinger – at overtale nogen til at gøre, hvad man ønsker.
 
 * Hakkedreng – hakkebøf af okse (står i ordbogen).
 
