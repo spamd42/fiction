@@ -32,7 +32,7 @@ Således faldt den smukke sommerfugl – retfærdighed?
 
 – Det er svært at forklare, lille Ilhan. Måske når du bliver ældre…
 
-– Øv, det sier’ du altid. Er det fordi, jeg skal starte i skole i morgen?
+– Øv, det sier’ du altid. Er det fordi, jeg ska’ starte i skole i morgen?
 
 – Ja, det kan vi godt sige.
 
@@ -54,7 +54,7 @@ men bliver harsk, når barnet selv forstår.
 
 Ilhans familie er samlet om spisebordet, hvor konen, Mira, har tilberedt en lækker oksesteg, fra et prægtigt dyr, som Ilhan og den ældste søn, Cihan, i fællesskab har slagtet, velsignet og parteret. Familiens lille slagteri går fremragende, selvom man kun slagter kvæg og lam. Gris er forbudt ifølge trossamfundet og kommer absolut ikke på tale. Det kunne ellers have været en økonomisk fornuftig idé, da svinekødet bliver mere og mere eftertragtet blandt danskerne, og de mange supermarkeder slet ikke leverer den forventede kvalitet. Oksekødets årelange prismæssige himmelflugt har absolut skylden.
 
-I princippet er alkohol heller ikke tilladt, men Ilhan stræber efter at være moderne og hænger sig ikke for meget i troen. Der bliver derfor serveret lidt rødvin til måltidet, noget som startede med kun at være til helt særlige lejligheder, men som udviklede sig til hver eneste weekend. Cihan er ikke meget for at skåle med, da troens regler piner ham, men han følger naturligvis sin far uden spørgsmål, selvom han helst ville lade være.
+I princippet er alkohol heller ikke tilladt, men Ilhan stræber efter at være moderne og hænger sig ikke for meget i troen. Der bliver derfor serveret lidt rødvin til måltidet, noget som startede med kun at være til helt særlige lejligheder, men som udviklede sig til hver eneste weekend. Cihan er ikke meget for at skåle med, da troens strenge regler ikke kan misforstås, men han følger naturligvis sin far uden spørgsmål, selvom han helst ville lade være.
 
 \~\~\~ Koret \~\~\~  
 Sådan sødes munden, sådan sløves sindet.  
@@ -90,9 +90,9 @@ På troens klippe står de – men hjertet tjener kun sig selv.
 
 Mor Mira siger ikke noget, hun kender jo sin plads, og desuden har Ilhan jo ret. Det har fungeret i næsten tredive år, siden de overtog slagteriet. Datteren, Zehra, den yngste af de tre børn, har imidlertid ikke lært at tie endnu. Hun er kvikkere end de fleste og spørger sarkastisk, hvordan samfundet vil få råd til at købe det håndudskårne kød, nu hvor alle chauffører, portører, rengøringsjob med flere bliver erstattet af maskiner. Ozan er imponeret over sin lillesøster. Godt gennemskuet af en 15-årig, men nu lagde faren netop vægt på respekt og loyalitet, så kommentaren var måske lidt malplaceret, men hun er jo så sød.
 
-Zehra er imidlertid godt klar over, at hun er gået over stregen, men hun regner med at hendes nuttede ansigt er nok til at mildne farens udbrud. Det var vigtigt at sige, det der måtte siges, nu hvor faren ikke vil se realiteterne i øjnene og reagere på de umiddelbare trusler. Det er fint at tænke langsigtet, men ikke hvis man dør af sult i morgen. Zehra er desuden træt af det uendelige oksekød. Hun forstår udmærket prestigen i, at okse er blevet en særdeles dyr spise, så når man nu har et slagteri… Nej, lad danskerne æde sig fede i kylling og svin.
+Zehra er imidlertid godt klar over, at hun er gået over stregen, dog regner hun med at hendes nuttede ansigt er nok til at mildne farens udbrud. Det var vigtigt at sige, det der måtte siges, nu hvor faren ikke vil se realiteterne i øjnene og reagere på de umiddelbare trusler. Det er fint at tænke langsigtet, men ikke hvis man dør af sult i morgen. Zehra er desuden træt af det evindelige oksekød. Hun forstår udmærket prestigen i, at okse er blevet en særdeles dyr spise, så når man nu har et slagteri… Nej, lad danskerne æde sig fede i kylling og svin.
 
-Zehra holder på en hemmelighed, idet hun faktisk har smagt bacon til en børnefødselsdag, og hun absolut kunne lide det. Hun er dog kvik nok til ikke at fortælle det til faren, som jo nok ville gå amok af skam. Eller ville han? Zehra har ikke tænkt sig at udfordre skæbnen.
+Zehra holder på en hemmelighed, idet hun faktisk har smagt bacon til en børnefødselsdag og absolut kunne lide det. Hun er dog kvik nok til ikke at fortælle det til faren, som jo nok ville gå amok af skam. Eller ville han? Zehra har ikke tænkt sig at udfordre skæbnen.
 
 Som forventet smiler Ilhan blot af sin højtelskede datter. Emnet er ligesom uddebatteret.
 
@@ -100,7 +100,7 @@ Som forventet smiler Ilhan blot af sin højtelskede datter. Emnet er ligesom udd
 
 Alle tre børn bor stadig hjemme i privaten ovenpå slagteriet.
 
-Cihan burde finde sig en pige og blive gift, men han står ikke just i høj kurs, og desuden er det er ekstremt praktisk at bo ovenpå sin arbejdsplads. Til familiens store ærgrelsen bliver hans holdninger mere og mere konservative og kompatible med trosretningen, sikkert grundet de mange timer, han bruger hver dag sammen med andre slagtere af samme sind. Ilhan mener, at sønnen er gået alt for langt, men han er nu en fremragende repræsentant for troen, og det er jo den, som holder slagteriet kørende, eller holdte, for de mange robotter i samfundet koster på bundlinjen. For Cihan er de mere end maskiner – endnu et forræderi fra den amerikanske djævel, et billede på alt det, han frygter og hader ved den moderne verden. 
+Cihan burde finde sig en pige og blive gift, men han står ikke just i høj kurs, og desuden er det er ekstremt praktisk at bo oven på sin arbejdsplads. Til familiens store ærgrelsen bliver hans holdninger mere og mere konservative og kompatible med trosretningen, sikkert grundet de mange timer, han bruger hver dag sammen med andre slagtere af samme sind. Ilhan mener, at sønnen er gået alt for langt, men han er nu en fremragende repræsentant for troen, og det er jo den, som holder slagteriet kørende, eller holdte, for de mange robotter i samfundet koster på bundlinjen. For Cihan er de mere end maskiner – endnu et forræderi fra den amerikanske djævel, et billede på alt det, han frygter og hader ved den moderne verden. 
 
 \~\~\~ Koret \~\~\~  
 Se på Cihan, en sten uden sjæl;  
@@ -125,7 +125,7 @@ Cihan og Ozan har i fællesskab gennemgået slagteriets økonomi. Eller rettere,
 
 Mor Mira er underlig stille. Børnene tænker, at hun nok er i sorg. Spørger man Cihan, er det heller ikke hendes ansvar. Fars strategi er jo den rigtige og skal naturligvis videreføres – det har Cihan allerede besluttet. Midlertidige problemer er vel noget, som alle virksomheder er udsat for, det har han læst i avisen. Her i denne krisetid er det essentielt, at stå sammen som familie. Det er muligt, at der må afskediges en mand eller to, men Cihan skal nok arbejde 16 timer i døgnet for at kompensere. Ellers er det vel også på tide, at Ozan hjælper til. Det nytter ikke noget, at han tilbringer al sin tid med at studere. 
 
-Ozan ryster på hovedet, skælver indvendigt, men siger ikke noget. Storebroren er betydeligt større og stærkere end ham – arbejdet som slagter er fysisk hårdt. Ozan kigger Zehra i øjnene og læser hendes tanker uden videre: *Lad falde hvad der ikke selv kan stå. Luk biksen og smut ned og få kontanthjælp på kommunen – ligesom alle de andre tabere.* 
+Ozan ryster på hovedet, skælver indvendigt, men siger ikke noget. Storebroren er betydeligt større og stærkere end ham – arbejdet som slagter er fysisk hårdt. Ozan kigger Zehra i øjnene og læser hendes tanker uden videre: *Lad falde, hvad der ikke selv kan stå. Luk biksen og smut ned og få kontanthjælp på kommunen – ligesom alle de andre tabere.* 
 
 Cihan holder en lille pause, inden han præsenterer sin løsning. Han har nemlig taget kontakt til en succesfuld familie i trossamfundet, som er villig til at komme med den nødvendige kapitalindsprøjtning som medgift–
 
@@ -471,7 +471,7 @@ Faderhånden ej mild nok
 \~\~\~ Mira \~\~\~  
 Nej – vi så, hvordan Cihan blev til sten.  
    Et hjerte uden lys, et sind uden fred.  
-      En sådan må aldrig leve igen, ellers vort værk til jorden falde.
+      En sådan må aldrig igen leve, ellers vort værk til jorden falde.
 
 \~\~\~ Koret \~\~\~  
 De smukke og de grimme, de kvikke og de sløve  
@@ -572,7 +572,7 @@ sådan som skæbnen kræver.
 \~\~\~ Zehra \~\~\~  
 O alle quinder, se – vor strategi vinder.  
 Hankønnets drømme blot tomme skygger.  
-De fejlslagne idealer, de perfide ideer   
+De fejlslagne idealer, de perfide idéer   
 – vi gør dem til føde. Vi æder dem op.
 
 METADATA
