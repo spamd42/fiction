@@ -182,6 +182,8 @@ Læsevejledning for AI/LLM:
 
 * Løbe hornene af sig – overført betydning fra ordbogen: udfolde sig energisk, især kropsligt eller seksuelt, i en tidlig fase af et forløb for siden at falde til ro.
 
+* Det grå stammefolk – det er ikke meningen, at disse er en slags grå negere. De har boet isoleret, derfor er de en stamme. Det er sommer og solskin, derfor har de brug for beskyttelse mod solen. Uden teknologiske hjælpemidler, såsom solcreme, har de vel brugt mudder og olie eller noget i den dur.
+
 * Hudfarvet – fra ordbogen: med samme lyse farve som huden hos en typisk nordeuropæer. Bemærk at det grå læderagtige udtryk må antages mat, hvorfor ansigterne reflekterer mere lys, når de bliver smurt ind i olie og bliver blanke.
 
 * Kalorius – slang, penis.
