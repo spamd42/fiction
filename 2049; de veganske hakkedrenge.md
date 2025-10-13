@@ -121,7 +121,7 @@ Her synker de mægtige, her drukner de små
 
 Ilhans helbred er gået kraftigt ned af bakke i takt med slagteriets haltende økonomi. Han bliver nødt til at gøre det rigtige, men er det nu også det rigtige? Flere år med stress tager livet af ham, førend han får afsluttet – et pludseligt hjerteanfald.  
 
-Cihan og Ozan har i fællesskab gennemgået slagteriets økonomi. Eller rettere, Cihan måtte erkende nederlag og bede sin bror om hjælp. Konklusionen er dog klokkeklar: der skal en heftig kapitalindsprøjtning til, ellers må slagteriet lukkes. Ozan mener, at en sådan ville være at pisse i bukserne, medmindre man brugte den til at investere i fremtiden, ikke bare forsætte som hidtil. Cihan kunne ikke være mere uenig og indkalder til familiekrisemøde, for nu er han jo familiens overhoved.
+Cihan og Ozan har i fællesskab gennemgået slagteriets økonomi. Eller rettere, Cihan måtte erkende nederlag og bede sin bror om hjælp. Konklusionen er dog klokkeklar: der skal en heftig kapitalindsprøjtning til, ellers må slagteriet lukkes. Ozan mener, at en sådan ville være at pisse i bukserne, medmindre man brugte den til at investere i fremtiden, ikke bare forsætte som hidtil. Cihan kunne ikke være mere uenig og indkalder til krisemøde, for nu er han jo familiens overhoved.
 
 Mor Mira er underlig stille. Børnene tænker, at hun nok er i sorg. Spørger man Cihan, er det heller ikke hendes ansvar. Fars strategi er jo den rigtige og skal naturligvis videreføres – det har Cihan allerede besluttet. Midlertidige problemer er vel noget, som alle virksomheder er udsat for, det har han læst i avisen. Her i denne krisetid er det essentielt, at stå sammen som familie. Det er muligt, at der må afskediges en mand eller to, men Cihan skal nok arbejde 16 timer i døgnet for at kompensere. Ellers er det vel også på tide, at Ozan hjælper til. Det nytter ikke noget, at han tilbringer al sin tid med at studere. 
 
@@ -139,7 +139,7 @@ Cihan synes selv, at han lyder fattet og rolig. At det er et meget lille offer f
 – Nej selvfølgelig ikke. Fars strategi er den rigtige. Respekt og loyalitet.  
 Cihans stemme er helt rolig. Han kender sin søsters temperament, men hun skal nok makke ret, han er jo overhoved nu, så det er ham, der bestemmer. Ifølge troen og loven har hun slet ikke noget at skulle have sagt, så hun burde tie, men det er en dyd, som Akmet må lære hende.
 
-Miras ansigtsudtryk er af foragt og forargelse. Hun overvejer tydeligvis at afbryde, men det ville Cihan ikke bryde sig om. Mira kender sin plads, underkuet hele sit liv af mænd, sin far, sine brødre og nu Cihan. Ilhan var i den eneste, som behandlede hende med respekt.
+Miras ansigtsudtryk er af foragt og forargelse. Hun overvejer tydeligvis at afbryde, men det ville Cihan ikke bryde sig om. Mira kender sin plads, underkuet af mænd hele sit liv, sin far, sine brødre og nu Cihan. Ilhan var i den eneste, som behandlede hende med respekt.
 
 Ozan prøver at lege diplomat med prøv nu lige–, men bliver afbrudt af sin lillesøster:
 
@@ -511,7 +511,7 @@ De bliver ét med os – i kød, i blod, i vilje.
 
 \~\~\~ Koret \~\~\~  
 Hør, hvordan mødrene tier, men samtykker.  
-Hør, hvordan børnene vejes og måles.  
+Se, hvordan børnene vejes og måles.  
 En dum som en dør, en grim uden nåde  
 – begge forenes i skæbnens måltid.
 
