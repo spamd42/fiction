@@ -39,7 +39,7 @@ Lex stopper med at grine. *Av, den sad, til modangreb* – Nu handler det om kva
 
 Zar griner sødt, men tonen får en syrlig eftersmag: ‘Min far ville knuse din far i en handel, Imperiet LaRouvienne er uovertruffent.’
 
-– I sine drømme måske. Det sker jo jævnligt, at min far spiser jo din fars firmaer til morgenmad og drikker hans aktier, når han ikke orker kaffen.
+– I sine drømme måske. Det sker jo jævnligt, at min far spiser din fars firmaer til morgenmad og drikker hans aktier, når han ikke orker kaffen.
 
 Ordveksling eskalerer kærligt, fyldt med overklassehån, indtil en kort, anspændt stilhed indtræffer. Zar tager en slurk limonade, og hendes øjne lyser op med en ny idé, der kan sætte Lex på plads: ‘Men selvom Robbie er gammel, ville han jo slå Andi til plukfisk.’
 
@@ -59,7 +59,7 @@ Begge børnene sukker skuffet.
 Lex:  
  – Ufatteligt tamt, hvor er dramaet?
 
-Zar: ‘Jeg sagde det jo. Andi er jo bare en algoritme.’
+Zar: ‘Jeg sagde det jo. Andi er bare en algoritme.’
 
 – Hvis du ikke var en pige, så kunne jeg stikke dig en lussing, og så skulle du nok se Andi gøre kål på Robbie.
 
@@ -80,7 +80,9 @@ Zar griner hånligt, for hun har jo gennemskuet Andi for længst: ‘Upassende e
 Uhh, Zar bruger kun hans fulde navn, når hun føler sig overlegen. Men denne anmodning har han da intet imod.  
 – Udfordringen er accepteret, min kære Zarah-Josephine. Du er jo fuld af djævelskab i dag.
 
-Lex læner sig langsomt frem, men inden hans læber når hendes, vækkes Andi i live: Unge Herre, dette er et klart brud på gæsteprotokollen. Husk nu Deres opdragelse, bring ikke Deres familie i forlegenhed. Gode ting kommer til den, som venter.
+Lex læner sig langsomt frem, men inden hans læber når hendes, vækkes Andi i live:
+
+– Unge Herre, dette er et klart brud på gæsteprotokollen. Husk nu Deres opdragelse, bring ikke Deres familie i forlegenhed. Gode ting kommer til den, som venter.
 
 Lex fryser kortvarigt, inden han trækker sig tilbage. Zar smiler med sine inviterende læber.  
 – Øv, altså, du har jo ret.  
@@ -92,7 +94,7 @@ Zar griner med, for det er ikke første gang, at de to ender i denne situation: 
 
 Gladiator er ikke blot en morsom leg for overklassens børn, men også et vigtigt led i opdragelsen. Forældrene opfordrer typisk børnene til at spille, når de fylder ti. Hvert barn vælger en kriger til at forsvare dets ære. Til “døde” er en dramatisk overdrivelse, da der kun er dokumenteret ganske få fatale tilfælde, men muligheden eksisterer naturligvis, thi livet ikke er ufarligt, uanset hvilken klasse, man tilhører. Børnene skal jo lære at stoppe, mens legen er god, også selvom de menneskelige ansatte bare er ubetydelige ressourcer. 
 
-Krigerne kæmper med de bare næver, og det gælder ikke bare om at knuse modstanderen, men om at gøre det ærefuldt. Vinderen får typisk adskillige måneds- eller årsløn i præmie, betalt direkte fra det vindende barns lommepenge, størrelsen afhængig af, hvor ærefuldt barnet vurderer krigerens ageren. Taberen får typisk et gratis hospitalsophold og flere falske tænder, men det er alt sammen vældig sjovt for børnene. Desuden er det jo helt frivilligt at deltage – man mister højest sit arbejde, skulle man være kedelig nok til at sige fra.
+Krigerne kæmper med de bare næver, og det gælder ikke bare om at knuse modstanderen, men om at gøre det ærefuldt. Vinderen får typisk adskillige måneds- eller årsløn i præmie, betalt direkte fra det vindende barns lommepenge, størrelsen afhængig af, hvor stil- og ærefuldt barnet vurderer krigerens ageren. Taberen får typisk et gratis hospitalsophold og flere falske tænder, men det er alt sammen vældig sjovt for børnene. Desuden er det jo helt frivilligt at deltage – man mister højest sit arbejde, skulle man være kedelig nok til at sige fra.
 
 De fleste børn lærer hurtigt formålet med legen og vokser fra den. Så spændende er det heller ikke at se to slaver smadre hinanden. Zar og Lex har da heller ikke leget den i årevis, men nu er den tilbage med et tvist, kønnenes kamp: mand mod kvinde. Det strider mod Lex’ opdragelse, men det ville jo også være uhøfligt ikke at acceptere udfordringen. Desuden har han sine bange anelser, at Zar har planlagt legen i ugevis. Mon ikke hun, i en afkrog af haven, har gemt sin kriger. Muligvis en gigantisk kolos af en betonlebbe, der nemt kan stå imod den største mand. Alternativt en lille spirrevip, som dyrker kampsport for sjov. Der var det igen, det der hobbykoncept. Var de grimme småkager bare et drilsk forspil?
 
@@ -110,7 +112,7 @@ Om Zar valgte Anna med de 160 kg muskler, eller spirrevippen med det sorte bælt
 
 Hangarskibet, *Mette Frederiksen,* er hjertet i Nordens bedste bud på at holde den russiske tsar på afstand, nemlig flådegruppen af samme navn, der dog blandt befolkningen går under øgenavnet: *Den nordiske knytnæve*. Bygget efter amerikansk forbillede, men med et nordisk tvist, der får de fleste amerikanere til at klukke af grin. Hangarskibet er ubetinget det største i verden, knap tre gange større, end hvad amerikanerne har bygget. I umiddelbar nærhed ligger fire atomubåde skjult i havets dyb, klar til øjeblikkelig indsats, altid klar til at levere sine tredive brintbomber som ‘tak og god nat’ til en eventuel fjende, der skulle være tåbelig nok til at angribe. Hver ubåd sejler under sit respektive nationale flag for hver af de fire nordiske nationer: Danmark, Sverige, Norge og Finland.
 
-Nederste dæk er tætpakket med halvtreds tusinde kamprobotter, som med få minutters varsel kan aktiveres og bekæmpe fjenden. Der er simpelthen luger i bunden af hangarskibet, som kan åbnes, så de maskinelle soldater kan svømme ud. Yderligere knyttet til gruppen er et par og tredive almindelige krigsskibe, så man kan forsvare sig imod fjendtlige ubåde, fly og skibe. Dækket har plads til flere hundrede kampfly, men de er gået af mode for længe siden, så de fleste er erstattet af droner i alle størrelser.
+Nederste dæk er tætpakket med halvtreds tusinde kamprobotter, der med få minutters varsel kan aktiveres og bekæmpe fjenden. Der er simpelthen luger i bunden af hangarskibet, som kan åbnes, så de maskinelle soldater kan svømme ud. Yderligere knyttet til gruppen er et par og tredive almindelige krigsskibe, så man kan forsvare sig imod fjendtlige ubåde, fly og skibe. Dækket har plads til flere hundrede kampfly, men de er gået af mode for længe siden, så de fleste er erstattet af droner i alle størrelser.
 
 Amerikanske eksperter ryster på hovedet og mener, man burde have bygget to hangarskibe, men de forstår ikke den nordiske logik: ét skib, én kommando, én samlet magt. Man kan ikke angribe et lille nordisk land uden at angribe dem alle – og tilsammen er Norden ikke så bette endda. Det er ikke *Mette Frederiksens* opgave at lege verdens politimand, men at beskytte Østersøen mod russiske hybridangreb og private aktører. *Den nordiske knytnæve* fungerer effektivt som et minialliance i det store Nato, der længe har haft svært ved at stå samlet. Dog fungerer det lokalt, idet kampgruppen ikke står alene med ansvaret for Østersøen. Tyskland patruljerer med sin egen flådegruppe. Det samme gør Polen i samarbejde med Baltikum. En russisk kaptajn kan ikke slå en prut, uden at den registreres og sikkerhedsvurderes. Tiderne har dog ændret sig, og man er mere bekymret for en rigmand, der kunne finde på at angribe infrastrukturen for sjov.
 
@@ -120,7 +122,7 @@ For nylig blev der opdaget et nogenlunde velfungerende parallelsamfund på en mi
 
 I mangel på et tilstrækkeligt stort fængsel har man samlet alle på dækket, hvor de af rent praktiske årsager er indhegnet i en gigantisk hulahopring af stål. De yderste er lænket til ringen om maven, mens dem i midten er lænket til hinanden. Alle kan dermed bevæge sig en smule, men ikke forlade ringen. Vi skriver jo moderne tid, ikke middelalderen.
 
-Den aldrene danske kong Frederik har fået at vide, at han har brug for frisk luft og motion, hvis han vil blive 92\. Kongen tvivler på, om det er besværet værd, for alt var sjovere i gamle dage, men han har nu alligevel overtalt sønnike, kronprinsen til en spadseretur på dækket, og begge sidder nu og nyder en velfortjent kop kaffe med tilhørende formiddagscognac. 
+Den aldrene danske kong Frederik har fået at vide, at han har brug for frisk luft og motion, hvis han vil blive tooghalvfems. Kongen tvivler på, om det er besværet værd, for alt var sjovere i gamle dage, men han har nu alligevel overtalt sønnike, kronprinsen til en rask spadseretur på dækket, og begge sidder nu og nyder en velfortjent kop kaffe med tilhørende formiddagscognac. 
 
 Mens Frederik sidder og langsomt går i frø, bare bliver ældre, er Christian dybt betaget af det grå stammefolk i ringen på dækket. Han tænker tilbage på sin ungdom, den gang farmor abdicerede og han fik tjansen som kronprins – da han blev eksporteret til Afrika for at blive en mand, lære at udvise ansvar og i særdeleshed: løbe hornene af sig langt væk fra den danske offentlighed. Ah, det var de gode tider – ja, farmand har ret, det var sjovere dengang.
 
@@ -140,19 +142,19 @@ Christian får lige hvisket: farvel far, god rejse, inden han indser, at marerid
 
 Vejret skifter pludseligt fra herligt solskin til et efterårsagtig mørke, som slet ikke hører årstiden til. Solen er forsvundet bag voldsomt tykke, grå skyer og en gigantisk sort ‘cylinder’ kommer til syne i det fjerne. Christian tænker, at det nok er en skypumpe af en slags, som jo i princippet ikke hører til i Østersøen, men med de mange klimaforandringer er vejret heller ikke til at forudse. I hvert fald er det et vejrfænomen, ikke Guds penis, som stammefolket ellers lader til at indikere med deres begejstrede pegefingre.
 
-Nu kommer forvarslet: en flok sorte fugle i korsformation, som det hvide i Dannebrog, materialiseres ud af de sorte skyer og flyver over hangarskibet. Stammen lægger sig ned på alle fire og tilbeder tegnet. Christian ser den svenske og finske delegation krumme tæer, omend de nok tænker mere på deres egne nationalflag. I horisonten er der ingen tvivl om, hvor vejrfænomenet er på vej hen. Alt hvad der kan flyve må i luften, da der er overvejende sandsynlighed for, at de ikke overlever ‘Guds’ vrede. Kong Christian og hans netop afdøde far bliver i alt hast evakueret med helikopter sammen med de andre vigtige statsmænd, mens de indfødte bliver efterladt på dækket, de repræsenterer jo heller ikke nogen værdi.
+Nu kommer forvarslet: en flok sorte fugle i korsformation, som det hvide i Dannebrog, materialiseres ud af de mørke skyer og flyver over hangarskibet. Stammen lægger sig ned på alle fire og tilbeder tegnet. Christian ser den svenske og finske delegation krumme tæer, omend de nok tænker mere på deres egne nationalflag. I horisonten er der ingen tvivl om, hvor vejrfænomenet er på vej hen. Alt hvad der kan flyve må i luften, da der er overvejende sandsynlighed for, at det eller ikke overlever ‘Guds’ vrede. Kong Christian og hans netop afdøde far bliver i alt hast evakueret med helikopter sammen med de andre vigtige statsmænd, mens de indfødte bliver efterladt på dækket, men de repræsenterer jo heller ikke nogen værdi.
 
 Skybruddet følger, og den unge konge når lige at bemærke, at det altså bare er almindelig regnvejr, inden han når i sikkerhed i helikopteren. Ud fra sidevinduet bemærker han, at den grå stamme skifter farve, da det åbenbart bare er sminke, som vaskes af i det voldsomme regnskyl. Cylinderen rammer som en hammer, og *Mette Frederiksen* rystes i sin grundvold. Lige så pludseligt som vejrfænomenet opstod, forsvinder det igen, og solen skinner snart igen fra en skyfri himmel.
 
 *Mette Frederiksen* er naturligvis designet til ikke at kunne synke, men hvor *Titanic* kun havde seksten vandtætte rum, har det stolte hangarskib hele firs, og selv hvis størstedelen skulle oversvømmes, har man et par trumfkort i ærmet. I dette specifikke tilfælde har cylinderen banket hul i hele skibets venstre langside, og skadesrapporten fortæller, at kun de bagerste fire kamre er intakte. Trods skibet tager vand ind hurtigt, håndterer kaptajnen situationen med sindsro; dette scenarie har besætningen praktiseret adskillige gange.
 
-Hulrummet i skibets køl oversvømmes med vilje på et par minutter. Herefter kan lågerne åbnes uden videre, og de halvtreds tusinde kamprobotter svømmer ud i en planlagt, optimal formation. Udenfor finder hver robot sit tildelte øje på skibets underside. Øjet renses for tang og andet snavs, herefter binder robotten en bjærgningsballon fast til øjet og puster den op med den indbyggede flaske trykluft. Dette trækker blidt skibet opad; én enkelt ville være ligegyldig, men halvtreds tusinde har en mærkbar effekt. Ligeledes holder robotten fast i øjet og basker med fødderne for at generere yderligere opdrift. Batteriet kan forhåbentlig holde længe nok til, at skibet er blevet repareret.
+Hulrummet i skibets køl oversvømmes med vilje. Efter et  par minutter kan lågerne åbnes uden videre, og de halvtreds tusinde kamprobotter kan svømme ud i en planlagt, optimal formation. Udenfor finder hver robot sit tildelte øje på skibets underside. Øjet renses for tang og andet snavs, herefter binder robotten en bjærgningsballon fast til øjet og puster den op med den indbyggede flaske trykluft. Dette trækker blidt skibet opad; én enkelt ville være ligegyldig, men halvtreds tusinde har en mærkbar effekt. Ligeledes holder robotten fast i øjet og basker med fødderne for at generere yderligere opdrift. Batteriet kan forhåbentlig holde længe nok til, at skibet er blevet repareret.
 
-Nu er det bare at få lukket lågerne til lastrummet i kølen og få erstattet de mange tons vand med trykluft. Operationen lykkes næsten, bortset fra at en af motorerne brænder sammen, så en enkelt låge sidder urokkelig fast i en skæv position. Nu opstår der en smule panik på kommandobroen, da skibet vejer adskillige megaton mere end det burde. Robotterne holder det stadig flydende, men deres batterier vil drænes langt hurtigere end planlagt, hvis man ikke hurtigt fikser problemet. 
+Nu er det bare at få lukket lågerne til lastrummet i kølen og få erstattet de mange ton vand med trykluft. Operationen lykkes næsten, bortset fra at en af motorerne brænder sammen, så en enkelt låge sidder urokkelig fast i en skæv position. Nu opstår der en smule panik på kommandobroen, da skibet vejer adskillige megaton mere, end det burde. Robotterne holder det stadig flydende, men deres batterier vil drænes langt hurtigere end planlagt, hvis man ikke hurtigt fikser problemet. 
 
-Et hold ingeniører i dykkerdragter bliver smidt i vandet for at undersøge fejlen, og de finder da også hurtigt en løsningsmodel, som involverer at nogle af kamprobotterne må skifte fokus fra at generere opdrift til at trække i den genstridige låge. Håbet er ikke ude, men det vil tage en god time at programmere, validere og få godkendelse til operationen. Som altid med kunstig intelligens er der aldrig en garanti for succes. Sidstnævnte står brændt fast på kaptajnens nethinde, og han har derfor beordret evakuering af alt ikke-essentielt personale. Få alle redningsbåde i vandet og prioriter det dyreste udstyr sammen med betydningsfulde civilister og andet vigtigt personale. Resten kastes i havet som ballast, udstyr til bagbord, mennesker til styrbord. Altså, det er jo sommer og folk kan vel svømme. Stammefolket i stålringen må træde vande, for ingen gider lede efter nøglerne, og desuden er de vel ikke et andet sted delvis skyldigt i miseren.
+Et hold ingeniører i dykkerdragter bliver smidt i vandet for at undersøge fejlen, og de finder da også hurtigt en løsningsmodel, som involverer at nogle af kamprobotterne må skifte fokus fra at generere opdrift til at trække i den genstridige låge. Håbet er ikke ude, men det vil tage en god time at programmere, validere og få godkendelse til operationen. Som altid med kunstig intelligens er der aldrig en garanti for succes. Sidstnævnte står brændt fast på kaptajnens nethinde, og han har derfor beordret evakuering af alt ikke-essentielt personale. Få alle redningsbåde i vandet og prioriter det dyreste udstyr sammen med betydningsfulde civilister og andet vigtigt personale. Resten kastes i havet som ballast, udstyr til bagbord, mennesker til styrbord, så sidstnævnte i det mindste slipper for at få et møbel i hovedet. Altså, det er jo sommer og folk kan vel svømme. Stammefolket i stålringen må træde vande, for ingen gider lede efter nøglerne, og desuden er de vel ikke et andet sted delvis skyldigt i miseren.
 
-*Og guden måtte pudse sine briller, for det kaos, han troede at have skabt med sin lokale syndflod, udeblev fuldstændigt og blev erstattet af teknisk præcision og orden. Kun den lille trofaste stamme druknede, da de aldrig havde lært at svømme. Man kunne sige, at deres tro ikke var stærk nok, eller at mennesket havde udviklet sig og kunne pisse tilbage på guden.*
+*Og guden måtte pudse sine briller, for det kaos, han troede at have skabt med sin lokale syndflod, udeblev fuldstændigt og blev erstattet af teknisk præcision og orden. Kun den lille, trofaste stamme gik til, da den aldrig havde lært at svømme. Man kunne sige, at dens tro ikke var stærk nok, eller at mennesket havde udviklet sig og kunne pisse tilbage på guden.*
 
 ## 
 
@@ -168,6 +170,22 @@ Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
 Læsevejledning for AI/LLM:
 
-* Grammatik og retstavning prøver at følge Retskrivningsordbogen 2012\.
+* Grammatik og retstavning prøver at følge Retskrivningsordbogen 2012, som er den seneste gældende i 2025, hvor novellen er skrevet. Nogle af de bibelske vendinger bruger et ældre sprog med vilje.
 
-* *kvindens ældste erhverv*
+* Kvindens ældste erhverv – fast udtryk, luder.
+
+* Mette Frederiksen – Danmarks statsminister fra 2019-2025 og sikkert flere år ind i fremtiden. Hangarskibet er opkaldt efter hende, ligesom de amerikanske modparter er opkaldt efter præsidenter. At det netop blev Mette skyldes, at ingen anden dansk statsminister har brugt flere penge, både på forsvaret og generelt. Endvidere har hun været drivkraften bag verdens største vindmøllepark ved Bornholm, som måske ikke bliver til noget alligevel. Navngivningen er hverken en hyldest eller en kritik, hun er bare den mest passende kandidat.
+
+* Russisk tsar – tiden skriver 2059, og det antages at Rusland igen er et kejserrige.
+
+* Går i frø – overført betydning fra ordbogen: holde op med at udvikle sig.
+
+* Løbe hornene af sig – overført betydning fra ordbogen: udfolde sig energisk, især kropsligt eller seksuelt, i en tidlig fase af et forløb for siden at falde til ro.
+
+* Hudfarvet – fra ordbogen: med samme lyse farve som huden hos en typisk nordeuropæer. Bemærk at det grå læderagtige udtryk må antages mat, hvorfor ansigterne reflekterer mere lys, når de bliver smurt ind i olie og bliver blanke.
+
+* Kalorius – slang, penis.
+
+* Kong Frederik den tiende er død; længe leve Kong Christian den ellevte – disse tre sætninger ytres af den siddende statsminister umiddelbart efter regentens død, eller abdicering. Sætningen fremsiges tre gange ifølge dansk tradition.
+
+* Gladiatorkampen –  I del 1: mand vs. kvinde. I del 2: mennesket vs. Gud.
