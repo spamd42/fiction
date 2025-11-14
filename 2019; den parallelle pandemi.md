@@ -5,24 +5,24 @@
 Der findes en forunderlig parallel verden. Hvis du gør dig umage, kan du besøge den.
 
 Lig ganske stille.  
-	Lad katten sove ved din side.  
-		Ae den ikke, for ellers begynder den bare at spinde og ælte.
+   Lad katten sove ved din side.  
+      Ae den ikke, for ellers begynder den bare at spinde og ælte.
 
 Det må den sådan set godt, men det er ikke konstruktivt.
 
 Tøm dit hoved for tanker.  
-	Læg det på puden i den helt rette vinkel.  
-		Du føler hverken ubehag eller smerte.
+   Læg det på puden i den helt rette vinkel.  
+      Du føler hverken ubehag eller smerte.
 
 Der er ingen risiko.  
-	Hvis du fejler, så falder du bare almindeligt i søvn.  
-		Timing er altafgørende, hvis du vi finde portalen til den anden verden.
+   Hvis du fejler, så falder du bare almindeligt i søvn.  
+      Timing er altafgørende, hvis du vi finde portalen til den anden verden.
 
 Det er nemmest, hvis du er veludhvilet.
 
 Betragt indersiden af dine øjenlåg.   
-	Lad månen eller morgensolen skinne ind ad åbne persienner.  
-		Svagt dæmpet lys kan også gå an.
+   Lad månen eller morgensolen skinne ind ad åbne persienner.  
+      Svagt dæmpet lys kan også gå an.
 
 Hvis du ikke ser andet end dine grå øjenlåg, er tidspunktet ikke det rette. Prøv igen senere.
 
@@ -31,16 +31,16 @@ Ser du et lysglimt, så følg det. Vær ikke bange – du er ikke ved at dø. N�
 Nu sker det snart.
 
 Du er ved at falde i søvn.  
-	Du falder ikke i søvn.  
-		Du er i et mellemstadie.
+   Du falder ikke i søvn.  
+      Du er i et mellemstadie.
 
 Portalen åbner sig.  
-	I en underlig skygge, møder du en mand.  
-		Du ved, at han er dig, men du kan ikke se din modparts ansigt.
+   I en underlig skygge, møder du en mand.  
+      Du ved, at han er dig, men du kan ikke se din modparts ansigt.
 
 Han er dig, og du er ham. I flyder sammen på en underlig måde.  
-	Du er i hans verden og han i din.  
-		I et helt ens og vidt forskellige.
+   Du er i hans verden og han i din.  
+      I et helt ens og vidt forskellige.
 
 Nu er du i et mylder af mennesker, hvilket du ikke er meget for i din verden. Her er mange ting anderledes, og de ukendte ansigter passer ligesom ind. Nogen af dem kender dig åbenbart og andre din modpart. Det er forvirrende; du er forvirret.
 
@@ -197,8 +197,8 @@ Isbjørnen miaver: “Giv mig noget mad hvis du ikke kan ligge stille.”
 *Åh, fang en sæl.*
 
 Lysglimt.  
-	Døden kan da kun være bedre end dette liv.  
-		Ørkenen sortner for dine øjne.
+   Døden kan da kun være bedre end dette liv.  
+      Ørkenen sortner for dine øjne.
 
 Badet i koldsved og rystende af kuldegysninger, putter du dig ind under dynen, men det er håbløst – iskold luft trækker stadig ind. Med en sidste kraftanstrengelse, pakker du først fødderne ind i dynen og trækker dynen ind under dig. Minutterne føles som timer, men dit rysteri aftager ikke. Du har brug for en varmedunk, men kan ikke huske hvor du har lagt den, og desuden ville du næppe overleve turen ud til køkkenet for at fylde den.
 
@@ -209,8 +209,8 @@ Katten er ved at få et hjertestop da du eksekverer planen. Panisk springer den 
 Minutterne går, og du ryster stadig, omend du kan mærke kroppen langsomt blive varmere. Fra erfaring ved du, at rystelserne snart går over og prøver at grine af situationen. Det ville dog være et falsk grin, og din særlige form for humor tillader ikke den slags.
 
 Lysglimt.  
-	Du er tilbage i den frosne fliseørken.  
-		Solen smelter hurtigt rimfrosten, og vejret bliver dejligt varmt.
+   Du er tilbage i den frosne fliseørken.  
+      Solen smelter hurtigt rimfrosten, og vejret bliver dejligt varmt.
 
 Du vandrer mod det største bjerg, og det er som om, du tager meget lange skridt. Snart er du ved foden og kikker på et skilt, der sandsynligvis viser navnet og højden på bjerget. Du prøver at studere skiltet nærmere, men teksten er ulæselig, dækket af alger og snavs. Lige meget, du ser en flisebelagt trappesti og begynder at bestige bjerget.
 
@@ -225,30 +225,30 @@ Herligt\! Turen til lægevagten er sparet. Igen har du vist dig som en fornuften
 Vi mennesker har fem grundlæggende smagssanser: sød, sur, salt, bitter og umami.
 
 Efter din nærkontakt med døden–  
-	Okay, efter dit møde med pandemien–  
-		Intermezzo i helvede.
+   Okay, efter dit møde med pandemien–  
+      Intermezzo i helvede.
 
 Du har kun én acceptabel smag tilbage.
 
 Alt bittert er for bittert.  
-	Chokolade med nødder smager som gift.  
-		Godt du ikke drikker kaffe.		
+   Chokolade med nødder smager som gift.  
+      Godt du ikke drikker kaffe.		
 
 Alt salt er smagsløst.  
-	Alt surt er kønsløst.  
-		Alt umami er intetsigende
+   Alt surt er kønsløst.  
+      Alt umami er intetsigende
 
 Sødt derimod. Fuld skrue på smagsoplevelsen. 
 
 Sukker-cola giver en frisk og sublim tilfredsstillelse.  
-	Alkohol føles fyldigt, forfriskende og velsmagende.  
-		Rom med cola er ungdommeligt, lækkert og delikat.
+   Alkohol føles fyldigt, forfriskende og velsmagende.  
+      Rom med cola er ungdommeligt, lækkert og delikat.
 
 Men du er jo alt for gammel … hah pyt med det. Kom hid.
 
 Vingummi giver en fantastisk smagfuld og udsøgt nydelse i mundhulen.  
-	Kage er bare mums.  
-		Åh, badevægten trænger vist til nye batterier.
+   Kage er bare mums.  
+      Åh, badevægten trænger vist til nye batterier.
 
 Du nægter at besøge portalland, da du udmærket ved hvad du vil møde: din modpart med aversion for alt sødt og fedt. Åleslank vil han beklage sig over at have tabt sååå mange kilo. Det magter du bare ikke at lægge øre til, men efter at have konsumeret en familiepose med stjernemix, stiger dit blodsukker voldsomt, og den efterfølgende insulinproduktion får dig til at kollapse på sofaen.
 
@@ -271,12 +271,12 @@ Vejret er selvfølgelig herligt på din modparts private strand. I sidder på en
 I diskuterer hvordan, I eventuelt kan hjælpe hinanden. Eller mere specifikt, hvordan din modpart kan gøre en ende på dit lønslaveri. Hvis denne verden er i umiddelbar fremtid, men ellers er parallel med din, så kunne han måske give dig nogle aktietips, lottonumre eller sportsresultater.
 
 Hvad som helst.  
-	Tanken om at skulle tilbage på kontoret er uudholdelig.  
-		Du kan umuligt klare 20 år mere på arbejdsmarkedet.
+   Tanken om at skulle tilbage på kontoret er uudholdelig.  
+      Du kan umuligt klare 20 år mere på arbejdsmarkedet.
 
 I hvert fald ikke på kontoret sammen med andre mennesker.  
-	Åh, hvilken pervers tanke – kom hid endnu en variant.  
-		Ak, portalen er ikke din ven.
+   Åh, hvilken pervers tanke – kom hid endnu en variant.  
+      Ak, portalen er ikke din ven.
 
 ## METADATA
 
