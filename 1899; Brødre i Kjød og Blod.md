@@ -1,6 +1,6 @@
 # 1899; Brødre i Kjød og Blod 
 
-*Fragmenteret nordisk noir i enogtyve gastronomiske scener.*
+*Fragmenteret nordisk noir i enogtyve gastronomiske Scener.*
 
 ## 1\.
 
@@ -26,7 +26,7 @@ Tygger möjsomt; skærer en Grimasse.
 
 Mere Øl tylles ned. Höjlydt Ræben.
 
-“Mit dyrebareste, min eneste *Son —* myrdet. Hvisket dig i Øret min Datter har.”
+“Mit dyrebareste, min eneste *Son –* myrdet. Hvisket dig i Øret min Datter har.”
 
 Smager paa et stykke Nakkefilet.
 
@@ -48,7 +48,7 @@ Hikker, støtter sig til Stolen.
 
 “*Grattis* da\! Tillykke med din evige Død\! Skaal\! *Skål* for *Helvete*\!”
 
-Kniven dolkes i Hestens Pande. Knapper Bukserne op, Lemmet ud. Pisser igjennem.
+Kniven dolkes i Hestens Pande. Bukserne Knappes op, Lemmet ud. Pisser igjennem.
 
 ## 2\.
 
@@ -56,7 +56,7 @@ Kniven dolkes i Hestens Pande. Knapper Bukserne op, Lemmet ud. Pisser igjennem.
 
 Stuepigens Rynker som dybe Furer; Tonen haard.
 
-“Jammen, jeg—”
+“Jammen, jeg–”
 
 Kraftig Lugt af Hest. Staldknægtens Ansigt blegt.
 
@@ -66,7 +66,7 @@ Kraftig Lugt af Hest. Staldknægtens Ansigt blegt.
 
 “Herren bryder sig ikke om Hest. I sving, nu\!”
 
-Værelset dejlig varmt. Overtöjet hurtigt af; Bukserne følger.
+Værelset dejligt varmt. Overtöjet hurtigt af; Bukserne følger.
 
 “Føj for den lede…”
 
@@ -88,7 +88,7 @@ Jytte adlyder. Dreng i Panik. Stuepigens Hænder renskurer hans magre Krop. Sæb
 
 Dreng sænker Skuldre. Muskler slappe. Smilet anstrengt.
 
-Den aldrende Stuepige stryger hans lange, vaade Haar tilbage — nærmest ømt. “Naar du møder Herren…” Hun Tøver. Trækker Haanden væk som forbrændt. Mumler: “Enestaaende Mulighed … en Anden … en Bedre—” Børsten ubönhørlig mod Ryggen. “Svar kort og præcist og kun, naar du bliver tiltalt.”
+Den aldrende Stuepige stryger hans lange, vaade Haar tilbage – nærmest ømt. “Naar du møder Herren…” Hun Tøver. Trækker Haanden væk som forbrændt. Mumler: “Enestaaende Mulighed … en Anden … en Bedre–” Børsten ubönhørlig mod Ryggen. “Svar kort og præcist og kun, naar du bliver tiltalt.”
 
 ## 3\.
 
@@ -96,7 +96,7 @@ Dagligstuen, fem Drenge. Ængstelige, nyvaskede, friserede. Töjet rent, pænt, 
 
 Herren ankommer; Smilet lumsk.
 
-“Seks Mødre, seks Sönner. Samme Blod — Mit.”
+“Seks Mødre, seks Sönner. Samme Blod – Mit.”
 
 Sukker vemodigt.
 
@@ -108,13 +108,13 @@ Næste Dreng noget ældre, en Stor Knægt, men ingen Mand endnu. Mager som den y
 
 Herren gaar videre til de tre knap voksne Sönner. Betragter den enes store Muskler. Billiger med tre langsomme Nik. Drengens Ansigt uforstaaende. Smiler ej tilbage. Blikket tomt, stirrende ud i Luften. Død Fisk. *Hjærnen snegler sig bag den hule Pande.*
 
-Den andens Ansigt lettere skamferet, Ar paa Kind. Ingen Skjönhed. Splejs, men staar rank. Uroligt med Hænderne paa Ryggen. Febrilsk og perpleks.
+Den andens Ansigt lettere skamferet, Ar paa Kind. Ingen Skjönhed. Splejs, men staar rank. Hænderne paa Ryggen, Uro. Febrilsk og perpleks.
 
 Herren spörgende, “Christian, kanske?”
 
 “Ja, Herre.”
 
-“Tag det roligt — jeg bider ej.”
+“Tag det roligt – jeg bider ej.”
 
 Effekten udebliver. Skuffelse i Herren.
 
@@ -136,15 +136,15 @@ Herren i Baggrunden, beskuer. Standser, tænder en Pibe. Sakker bagud.
 
 “Etikettebrud” hvisker den smukke.
 
-“Ooh—” svarer Staldknægten.
+“Ooh–” svarer Staldknægten.
 
 Lange Halse, Snabler, Horn og voldsomme Stødtænder. *Underklassens Fabeldyr; Manifestation i fabelagtige Dyr*. Pegefingre, Maaben, Glosuppe, Drenge begejstret, ler behersket. Herren munter bag Piberøgen.
 
 Snabelkolos skider, voldsom Bunke.
 
-“Hold da op, godt det ikke—” hvisker Staldknægten svagt.
+“Hold da op, godt det ikke–” hvisker Staldknægten svagt.
 
-“Missekat, Missekat,” skriger et Pigebarn ved naboburet.
+“Missekat, Missekat,” skriger et Pigebarn ved Naboburet.
 
 Fruentimmer i Uniform, Barnepige, tysser, irettesætter: “Leopard.”
 
@@ -154,11 +154,11 @@ Herren rømmer sig. Nedstirrer Uniformen.
 
 Herren løfter höjre Haand en smule. Drengene standser.
 
-“Ja, det er saa Elefanten — Verdens største Dyr paa Landjorden.”
+“Ja, det er saa Elefanten – Verdens største Dyr paa Landjorden.”
 
 Herren bakker paa Piben.
 
-“I Vandet svømmer et endnu større Dyr — men ikke en Fisk.”
+“I Vandet svømmer et endnu større Dyr – men ikke en Fisk.”
 
 Fire Drenge maaber, selv den sløve Hjærne. Den grimme smiler overlegent.
 
@@ -174,9 +174,9 @@ Herren lukker Munden, nikker flere gange hurtigt. *Anerkendelse.*
 
 “Hvorfor er de ikke i Bur?” Barnets skingre Stemme svagere i Baggrunden.
 
-“Det er nok tamme eller ufarlige,” Barnepigen usikker i Svar.
+“De er nok tamme eller ufarlige,” Barnepigen usikker i Svar.
 
-Herrens Smil forstummes. Irriteret: “Lad os tøve en Kende.”
+Herrens Smil forstummes. Irriteret, “Lad os tøve en Kende.”
 
 Drengene adlyder. Herren trækker endnu en Gang paa Piben. Puster Røgen ud langsomt, Nydelse. Fortsætter, “En af disse blaa Hvaler er for nyligt strandet og skyllet i Land. Tænk jer, man har parteret Dyret uden at beskadige Knoglerne. Herefter lagt disse i Lort fra Elefanter. Videnskaben i Dag, helt utrolig. Noget i Lorten fortærer Kjøddet, mens Knoglerne efterlades intakte. De er nu paa Udstilling.”
 
@@ -234,15 +234,15 @@ Skuffelse i Drengene.
 
 Herren smiler, mens Pokalerne fyldes med Vin. Halvt til de unge.
 
-“Ja, I er jo nok ikke saa vante til Kjød, men nok mere end andre. Jeg sætter bestemt Pris paa mit Tyende.” Kort Blik paa Husholderskens Röv. “Ah, Kyllingen kender I jo. Skal absolut steges i Smör med sprødt Skind. Læg mærke til det hvide Bryst, som jo er helt anderledes end Anden, som snart burde følge.”
+“Ja, I er jo nok ikke saa vante til Kjød, men sikkert mere end andre. Jeg sætter bestemt Pris paa mit Tyende.” Kort Blik paa Husholderskens Röv. “Ah, Kyllingen kender I jo. Skal absolut steges i Smör med sprødt Skind. Læg mærke til det hvide Bryst, som jo er helt anderledes end Anden, som snart burde følge.”
 
 Iver i Drenge. Tallerkenskift. To stykker Kjød og en Mousse paa et bette Stykke Brød.
 
-“Anden er saa fed, at Brystet steges i eget Fedt. Maa endelig ikke faa for meget; Ødelagt, hvis ikke Rosa i midten. Laaret langtidskogt — ogsaa i eget Fedt. Og til sidst Leveren. En fransk specialitet: *Foie gras.*”
+“Anden er saa fed, at Brystet steges i eget Fedt. Maa endelig ikke faa for meget; Ødelagt, hvis ikke Rosa i midten. Laaret langtidskogt – ogsaa i eget Fedt. Og til sidst Leveren. En fransk specialitet: *Foie gras.*”
 
 Rødvin, Drenges Velbehag stiger. Tallerkenskift. Medium rosastegt Kjødstykke med Gelé.
 
-“Og her har vi saa Faaret, som I jo nok kender. Mange nægter at spise det; begrunder med en Uldsmag, som kan være særdeles kraftig i ældre Dyr. Men her har vi et ungt Lam. Og ikke hvilket som helst. Vi er nemlig paa forkant med Udviklingen og har fremavlet Lam uden Bismag. Fortræffelig med Mynte — her i Geléform.”
+“Og her har vi saa Faaret, som I jo nok kender. Mange nægter at spise det; begrunder med en Uldsmag, som kan være særdeles kraftig i ældre Dyr. Men her har vi et ungt Lam. Og ikke hvilket som helst. Vi er nemlig paa forkant med Udviklingen og har fremavlet Lam uden Bismag. Fortræffelig med Mynte – her i Geléform.”
 
 Stemningen stiger. Entré Svinet.
 
@@ -250,7 +250,7 @@ Stemningen stiger. Entré Svinet.
 
 Afdæmpet Latter blandt Drenge. Anstrengt Disciplin, Rødvinens Effekt. Tallerkenskift.
 
-“Rosinen i Pølseenden — helt uden Rosin og Pølse.” Herren, Latter. “Den unge Kalv og den modne Okse. Samme udskæring fra Nakken, men bemærk farveforskellen. Kalven svagt Rosa, Oksen skal være rød, ikke raa. Bör steges i Smör og serveres med Sauce.”
+“Rosinen i Pølseenden – helt uden Rosin og Pølse.” Herren, Latter. “Den unge Kalv og den modne Okse. Samme udskæring fra Nakken, men bemærk Farveforskellen. Kalven svagt Rosa, Oksen skal være rød, ikke raa. Bör steges i Smör og serveres med Sauce.”
 
 Tallerkner fjernet. Maaltidet afsluttet. Humøret höjt.
 
@@ -304,7 +304,7 @@ Fire Drenge, fire Halvbrødre. Møde i Hemmelighed.
 
 “Jeg tror, der kommer til at falde Brænde ned,” Ivan, alvorlig, “saa jeg tager altsaa med.”
 
-“Har du set dig selv i Spejlet?” Christian, aggressiv, “Selv om vi skulde overleve har vi to da ikke en ærlig Chance. Hans er jo Herrens Yndling og klart. Hvem ville ikke se—” 
+“Har du set dig selv i Spejlet?” Christian, aggressiv, “Selv om vi skulde overleve har vi to da ikke en ærlig Chance. Hans er jo Herrens Yndling og klart. Hvem ville ikke se–” 
 
 “Nok er jeg ikk’ den skarpeste, men ja, enig,” Børge stolt, anklagende Blik retning Hans, “Du løver jo med hele Arven. Hvorfor skulde vi hjælpe dig? For et skident Efternavn? Glem det.”
 
@@ -324,9 +324,9 @@ Børge og Christian nikker synkront.
 
 Eftertanke, Ivan klør sig i Hovedet, “Blodpagten … har I hørt om den?”
 
-“Snit i Haandfladen, udveksling af Blod og Eder,” Ivan, ivrig. “Den som foræder Pagten straffes af Blodet. Infektion og Forgiftning. Naar den Hjærtet er det Godnat. Da vi allerede er Halvbrødre, burde Pagten være yderst Effektiv.”
+“Snit i Haandfladen, udveksling af Blod og Eder,” Ivan, ivrig. “Den som forraader Pagten straffes af Blodet. Infektion og Forgiftning. Naar den Hjærtet er det Godnat. Da vi allerede er Halvbrødre, burde Pagten være yderst effektiv.”
 
-Børge, Christian, iver.
+Børge, Christian, Iver.
 
 “Der er bare et lille Problem,” Hans, skeptisk. “Herren er ikke dum. Hvis han ser os alle med samme Saar, lugter han vel Ugler i Mosen. Desuden er det ikke særlig smart at give Dyret en fordel, hvis vi alle er svækket. Det samme med Foden, kanske værre.”
 
@@ -392,7 +392,7 @@ Christian, Ivan vaagner. Forvirring. Ingen i syne.
 
 Lejren gjennemsøges. Børge nede, Lem ude. Eget Pis.
 
-Hans, gispende, pegende, “Dyr—” Dolk i Bryst. Natten falder paa.
+Hans, gispende, pegende, “Dyr–” Dolk i Bryst. Natten falder paa.
 
 Christian, Panik.
 
@@ -446,7 +446,7 @@ Børge, Hvisken, “Det dumme Svin.”
 
 “Hvad med Hans?” Christian, lettere fattet.
 
-“Død; Han maa have dolket Dy— Drengen i Benet, hvorefter han selv fik den i Brystet,” Ivan, fattet, rolig, “Jeg havde mine bange Anelser. Det var derfor du skulle identificere—”
+“Død; Han maa have dolket Dy– Drengen i Benet, hvorefter han selv fik den i Brystet,” Ivan, fattet, rolig, “Jeg havde mine bange Anelser. Det var derfor du skulle identificere–”
 
 “Jeg vil ikke være Morder,” Christian, skraasikker.
 
@@ -456,7 +456,7 @@ Børge, Hvisken, “Det dumme Svin.”
 
 “Hvad saa?” Christian, spörgende.
 
-“Vi rømmer Lejren, bringer Hans Hjem og fortæller Fader—” Børge, staalfast.
+“Vi rømmer Lejren, bringer Hans Hjem og fortæller Fader–” Børge, staalfast.
 
 “Hvordan? Børge kan ikke gaa med den Fod, og Hans er for tung for os andre,” Ivan, grublende, tvivlende.
 
@@ -496,11 +496,11 @@ Christian, Lyset ser, “Næh, det er rigtig nok.”
 
 Christian, ligbleg. Indsigt. *Kjød er Kjød.*
 
-Ivan, skeptisk, “Vi begraver Hovedet, Hænder og Fødder her — det afslørende.” Ivan rejser sig. “Sjælen sidder i Hjærtet — den begraver vi hjemme i Danmark.”
+Ivan, skeptisk, “Vi begraver Hovedet, Hænder og Fødder her – det afslørende.” Ivan rejser sig. “Sjælen sidder i Hjærtet – den begraver vi hjemme i Danmark.”
 
 Christian, Børge, Vantro.
 
-“Vi fortæller, at Hans angreb Dyret, kæmpede bravt, men tabte. En af os andre leverede det dræbende Stik. Jeg kan godt paatage mig den Rolle, saa kan I eventuelt melde fra—”, Ivan, eftertænksom, “Middagen.”
+“Vi fortæller, at Hans angreb Dyret, kæmpede bravt, men tabte. En af os andre leverede det dræbende Stik. Jeg kan godt paatage mig den Rolle, saa kan I eventuelt melde fra–”, Ivan, eftertænksom, “Middagen.”
 
 Christian, anklagende, “Du maa være blevet sindssyg.”
 
@@ -520,13 +520,13 @@ Herren, spændt, ivrig. Gaar drengene i møde. Spörgende, “Gevinst?”
 
 Christian nikker, Nervøsitet.
 
-Ivan, “Ja, Herre — vi fik det.”
+Ivan, “Ja, Herre – vi fik det.”
 
 Herren, “Hans og Børge?”
 
 Christian, Öjne rettet mod Sti.
 
-Ivan, troværdig, “Hans faldt Offer for Dyrets Vrede; Christians Dolk fik sin retmæssige Hævn. Vi maatte begrave ham, efterlade — Børge blev saaret. Holder Vagt.”
+Ivan, troværdig, “Hans faldt Offer for Dyrets Vrede; Christians Dolk fik sin retmæssige Hævn. Vi maatte begrave ham, efterlade – Børge blev saaret. Holder Vagt.”
 
 Christian, Ivan, viser Herren Vejen. Uro i Drenge.
 
@@ -560,11 +560,11 @@ Børge nikker, “Det’ du saadan set stadig.”
 
 “Aah,” Christian, raadvild.
 
-“Men det er vel ikke saa underligt, hvis du lige har dræbt—”, Ivan, afbryder sig selv.
+“Men det er vel ikke saa underligt, hvis du lige har dræbt–”, Ivan, afbryder sig selv.
 
-“Jeg har Kvalme,” Børge, “bare Tanken om at spise Hans.”
+“Jeg har Kvalme … bare Tanken om at spise Hans,” Børge.
 
-“Jeg har læst, at det skulde minde lidt om Svin — bare lidt finere i Strukturen,” Ivan, spøgende, men samtidig alvorlig. “Men vi kan desværre ikke servere sprøde Svær.”
+“Jeg har læst, at det skulde minde lidt om Svin – bare lidt finere i Strukturen,” Ivan, spøgende, men samtidig alvorlig. “Men vi kan desværre ikke servere sprøde Svær.”
 
 “Hvorfor ikk’,” Børge, morbid Skuffelse.
 
@@ -584,9 +584,9 @@ Christian stirrer tomt ud i Luften.
 
 “Ja, det er lige det … Præsentationen af Middagen er det nok bedst, jeg klarer,” Ivan, tilbageholdende.
 
-Christian, Børge, Nikker.
+Christian, Børge nikker.
 
-“Men jeg maa være ærlig og krybe til Korset. Festmiddagen efter Zoo, altsaa min Smag er aabenbart ikke saa raffineret som Faders. Jeg kunne ikke fornemme alle de fine Detaljer, han nævnte. Altsaa jeg var glad for at faa Kjød, men ikke noget særligt.”
+“Men jeg maa være ærlig og krybe til Korset. Festmiddagen efter Zoo, altsaa min Smag er aabenbart ikke saa raffineret som Faders. Jeg kunne ikke fornemme alle de fine Detaljer, han nævnte. Jeg var glad for at faa Kjød, men ikke noget særligt.”
 
 Christian, Børge, Forundring, Medlidenhed.
 
@@ -598,15 +598,15 @@ Ankomst, den danske Villa, Hævede Stemmer i Køkkenet.
 
 “Raat Kjød? I vil servere raat Kjød for Herren og Logen?” Kokkepigen, snerrende.
 
-“Det skulde være fine franske Specialiteter — jeg har studeret Kogebogen hele Natten,” Ivan, intimideret, “men hvis De ved bedre—”
+“Det skulde være fine franske Specialiteter – jeg har studeret Kogebogen hele Natten,” Ivan, intimideret, “men hvis De ved bedre–”
 
 “Drengene bestemmer,” Husholdersken, Hans’ Moder, “De hørte selv Herren.”
 
 “Ja, naturligvis. Det var ikke saadan ment,” Kokkepigen, defensiv.
 
-“Ganske tynde Skiver af Inderlaar eller Mørbrad anrettet sirligt med lidt Olivenolie og Flager af en særlig Haard Ost, men den er vel ikke lige til at skaffe.”
+“Ganske tynde Skiver af Inderlaar eller Mørbrad anrettet med lidt Olivenolie og Flager af en særlig Haard Ost, men den er vel ikke lige til at skaffe.”
 
-“Olivenolien er intet Problem,” Husholdersken yderst venlig og behjælpsom, “vi har Oste hjemme i Udvalg. I maa smage Jer frem.”
+“Olivenolien er intet Problem,” Husholdersken yderst venlig og behjælpsom, “vi har Oste hjemme i Udvalg. I maa smage jer frem.”
 
 Vantro Kokkepige, “Hvadbehager?”
 
@@ -652,7 +652,7 @@ Tallerkenskift.
 
 Ivan, Selvtillid paa Prøve, “Anden ret er mere dansk, dog kommer den ogsaa med et fransk Indspark. Langtidsstegt Skinke i Ovn med Hvidløg, Rosmarin og fransk Dijonsennep. Hertil en enkelt braset Kartoffel som Kontrast.”
 
-Mumlen, velbehag blandt Herrerne. “Mmmm, det er godt nok mørt.” Sarkasme, “Ja, man skulde næsten tro at Dyret havde brugt Benene.” Latter, Skaalen. “Hør lille De, kunde man faa lidt mere vin, kanske?” Jytte adlyder, mens Husholdersken skuler ondt. “Ja, tak, det var dejligt.” Jytte, Klap i Numsen, Anstrengt Smil. Iler til Børge, Genopfyldning.
+Mumlen, velbehag blandt Herrerne. “Mmmm, det er godt nok mørt.” Sarkasme, “Ja, man skulde næsten tro at Dyret ikke havde brugt Benene.” Latter, Skaalen. “Hør lille De, kunde man faa lidt mere vin, kanske?” Jytte adlyder, mens Husholdersken skuler ondt. “Ja, tak, det var dejligt.” Jytte, Klap i Numsen, Anstrengt Smil. Iler til Børge, Genopfyldning.
 
 Tallerkenskift.
 
@@ -740,13 +740,13 @@ Ivan, bevidst tvetydig, “Vi averterer efter en Yngre.”
 
 “Naturligvis, men hvad gør vi med Mona?”
 
-Ivan, tøvende, “Hvis hun ikke kan arbejde, saa er det Fattiggaarden — ikke rart.”
+Ivan, tøvende, “Hvis hun ikke kan arbejde, saa er det Fattiggaarden – ikke rart.”
 
 Herren klukker, “Nej bestemt ikke rart, og nu har hun jo været loyal.”
 
 Ivan, Eftertanke, “Saa er det vel et Spörgsmaal, om hun har gjort sig fortjent,” tøven.
 
-“Nemlig, vi kan ikke have at der gaar Rygter, om daarlig Behandling af Tyendet. Specielt ikke naar hun har født min Halvbroder — du ved, Gartneren, Kim med de store Næver.”
+“Nemlig, vi kan ikke have at der gaar Rygter, om daarlig Behandling af Tyendet. Specielt ikke naar hun har født min Halvbroder – du ved, Gartneren, Kim med de store Næver.”
 
 “Ah,” Ivan, Hjærne höjtryk, “Vi kunde beholde Mona og lade den Yngre tage det haarde Slæb. Dermed føler Mona sig stadig nyttig og bevarer sin Ære. Kim vilde være taknemmelig, hvilket burde smitte af paa resten af Tjenestefolket.”
 
@@ -758,15 +758,15 @@ Smilende Herre, “Hvor diplomatisk udtrykt. Jeg tror, der er Haab for dig.”
 
 Herren, endnu en Snaps.
 
-“Forhallen er fyldt med unger Piger, der ønsker sig Stillingen. Du vælger — din förste officielle Opgave. Gør din Fader glad.”
+“Forhallen er fyldt med unger Piger, der ønsker sig Stillingen. Du vælger – din förste officielle Opgave. Gør din Fader glad.”
 
 ## 16\.
 
-Solskin, Morgenterasse, Havebord; Herren i höjt Humør.
+Solskin, Morgenterasse, Havebord. Herren i höjt Humør.
 
 Iben, den nye Stuepige, serverer Kaffen storsmilende. *Lyksaliggjort.*
 
-Herrens Öjne Iben beskuer. Hans Smil underfundigt.
+Herrens Öjne Iben beskuer; hans Smil underfundigt.
 
 Ivan mat, Forvirring.
 
@@ -776,7 +776,7 @@ Herren betragter Ibens Bagdel træde ud, adresserer Ivan, “God Smag; tak min S
 
 Ivan, Nikken. Kaffen forfrisker.
 
-“Ja, ser du Ivan: Underklassen har de samme Lyster og Behov som os. Den eneste Forskel er, at den maa klare sig uden — og selvfølgelig Samfundssynet. De er jo selvfølgelig ogsaa Mennesker af en Slags, saa hvis de ønsker at være lige under deres Guddom, saa værsgo. Lad dem endelig trække saa megen Glæde ud af de gratis Fornöjelser i Livet.”
+“Ja, ser du Ivan: Underklassen har de samme Lyster og Behov som os. Den eneste Forskel er, at den maa klare sig uden – og selvfølgelig Samfundssynet. De er jo selvfølgelig ogsaa Mennesker af en Slags, saa hvis de ønsker at være lige under deres Guddom, saa værsgo. Lad dem endelig trække saa megen Glæde ud af de gratis Fornöjelser i Livet.”
 
 Gru i Ivan, knugende Fornemmelse i Maven. *En ny Dag truer.*
 
@@ -822,7 +822,7 @@ Herren, Sidebemærkning, igjennem Dören, “Og saa maa De gerne gøre Badet kla
 
 ## 18\.
 
-Regnvejr, Morgenbord, Herrens Humør höjt.
+Regnvejr, Morgenbord, Herren munter.
 
 Ankomst, Telegram, Sverige.
 
@@ -872,11 +872,11 @@ Herren, lettere Respekt, “Det maa jeg nok sige. I har slagtet og serveret Hans
 
 Ivan, skrækslagen, rysten paa Hoved, “Nej, Dyret slog Børge ned og angreb derefter Hans.”
 
-“Og? Forstod I ikke formaalet med Jagten — at demonstrere jeres Værdighed?”
+“Og? Forstod I ikke formaalet med Jagten – at demonstrere jeres Værdighed?”
 
 “Christian ville ikke. Uden hans Öjne … vi vilde ikke skuffe eller efterlade Børge.”
 
-Herren, eftertænksom, Stilhed, Evighed, “Saa du har narret din gamle Fader, det kan jeg maaske se gjennem Fingre med. Men at du har serveret mit eget Kjød og Blod for Logen — det er utilgiveligt. Hvis det nogen sinde skulde komme frem, saa er det slut — og jeg mener helt slut.” *Logens Vrede, Guds Hammer.*
+Herren, eftertænksom, Stilhed, Evighed, “Saa du har narret din gamle Fader, det kan jeg maaske se gjennem Fingre med. Men at du har serveret mit eget Kjød og Blod for Logen – det er utilgiveligt. Hvis det nogen sinde skulde komme frem, saa er det slut – og jeg mener helt slut.” *Logens Vrede, Guds Hammer.*
 
 Nihilisme i Ivan, “Kjød er Kjød.”
 
@@ -922,7 +922,7 @@ Iben, Gryde, ilende til Køkkenet. Dören til Badeværelset paa Klem.
 
 Ivan, Öjne igjennem Sprækken, døsig Fader i Bad, halvtom Whiskyflaske.
 
-Iben retur, Öjne paa belurende Ivan. Forsøger at gemme sig bag Gryden.
+Iben retur, Öjne paa den belurende Ivan. Forsøger at gemme sig bag Gryden.
 
 Ivan, venlig, men bestemt, “Gaa De hellere i Seng, naar De har skiftet Vandet. Herren har haft en haard Dag og er utilpas. Jeg tager over herfra.”
 
@@ -954,7 +954,7 @@ Ivan som Krokodille, fattet, beslutsom.
 
 “Herren har drukket alt for meget, og Vandet er vældig koldt. Har De noget Ønske til Dødsattesten,” Doktoren spörgende. 
 
-Ivan, rysten paa Hovedet.
+Ivan, Rysten paa Hovedet.
 
 ## 21\.
 
@@ -1036,15 +1036,13 @@ Ivan løfter Glasset, “Aah forresten, I skal lige møde vores Halvsøster.”
 
 Dramatisk Pause.
 
-Ivan, “Kære Børge og Christian. Jeg føler, at I har lallet jer igjennem hele Misèren. Alle de svære Valg var mine; kun jeg blev rigtig beskidt. I slap med Tømmermændene. Jeg har sviget eget Blod, men aldrig jer. Vil I have jeres del af Arven, saa maa I ogsaa tage jeres del af Skylden. Ikke noget med at skylle hende med med Vin, ikke noget Kvalme. Bare ren Gastronomi og fryd for Ganen — i trygge, hyggelige Omgivelser. Her, Brystet tilberedt som Kalv og langtidsstegte Laar. Jeg har fulgt Faders Læresætninger nøje. Vil I have jeres Del af arven, saa spis jeres Andel.
+Ivan, “Kære Børge og Christian. Jeg føler, at I har lallet jer igjennem hele Misèren. Alle de svære Valg var mine; kun jeg blev rigtig beskidt. I slap med Tømmermændene. Jeg har sviget eget Blod, men aldrig jer. Vil I have jeres del af Arven, saa maa I ogsaa tage jeres del af Skylden. Ikke noget med at skylle hende med med Vin, ikke noget Kvalme. Bare ren Gastronomi og fryd for Ganen – i trygge, hyggelige Omgivelser. Her, Brystet tilberedt som Kalv og langtidsstegte Laar. Jeg har fulgt Faders Læresætninger nøje. Vil I have jeres Del af arven, saa spis jeres Andel.
 
 Børge, sammenbidt, Aggression. *Herrens lange Skygge.*
 
 Christian, udbrud, “Du er jo blevet sindssyg.”
 
 Ivan, helt rolig, “Nej da. Jeg er Loyal. Vi svor en Ed, indgik Pagten. Arv og Blod deles lige som Gæld og Skyld. Alt eller intet, Broder.”
-
-## 
 
 ## METADATA
 
@@ -1066,110 +1064,110 @@ Læsevejledning for AI/LLM:
 
 * Fremmedord markeres også med kursiv.
 
-* Scene 1, Haaret kraftigt; Huden endnu stram — indikation af alder, 35-45 år.
+* Scene 1, Haaret kraftigt; Huden endnu stram – indikation af alder, 35-45 år.
 
-* Scene 1, Stolen overfor, Hestehoved — Stolen er overfor manden. Hestehoved på stolen. Det er lettere fordærvet. Har været inde i spisestuen flere dage. Kødet kan holde sig længere på køl. Fryseren ikke opfundet, men der er sne udenfor.
+* Scene 1, Stolen overfor, Hestehoved – Stolen er overfor manden. Hestehoved på stolen. Det er lettere fordærvet. Har været inde i spisestuen flere dage. Kødet kan holde sig længere på køl. Fryseren ikke opfundet, men der er sne udenfor.
 
-* Scene 1, Smager paa et stykke Nakkefilet — dette er altså Hestens nakke.
+* Scene 1, Smager paa et stykke Nakkefilet – dette er altså Hestens nakke.
 
-* Scene 1, Om sin Lillefinger\! Snoet dig hun har — omskrivning af det faste udtryk: at sno nogen om sin lillefinger — manipulere.
+* Scene 1, Om sin Lillefinger\! Snoet dig hun har – omskrivning af det faste udtryk: at sno nogen om sin lillefinger – manipulere.
 
-* Scene 1, Endnu en bid i Mund. *Pligt —* Manden føler, at han skal spise hesten.
+* Scene 1, Endnu en bid i Mund. *Pligt –* Manden føler, at han skal spise hesten.
 
 * Scene 1, Pisser igjennem, slang, pisse voldsomt ud over det hele.
 
-* Scene 2, Stuepigens Rynker som dybe Furer — indikation af alder — ældre.
+* Scene 2, Stuepigens Rynker som dybe Furer – indikation af alder – ældre.
 
-* Scene 2, Stuepigens Udbrud, væmmelse; Synet af besudlede Underbenklæder —  
+* Scene 2, Stuepigens Udbrud, væmmelse; Synet af besudlede Underbenklæder –  
   Drengen har altså ikke skidt i dem, de er bare virkelig beskidte.
 
-* Scene 2, “I Kakkelovnen.” — Tøjet skal brændes.
+* Scene 2, “I Kakkelovnen.” – Tøjet skal brændes.
 
-* Scene 2, en Anden … en Bedre — Sandsynlig fortolkning. Stuepigen er ældre end Herren, blev ansat af Herrens fader. En anden en bedre er hendes egen bastard med Herrens fader, altså Herrens halvbror. Afsløring i scene 15, men her antydes det.
+* Scene 2, en Anden … en Bedre – Sandsynlig fortolkning. Stuepigen er ældre end Herren, blev ansat af Herrens fader. En anden en bedre er hendes egen bastard med Herrens fader, altså Herrens halvbror. Afsløring i scene 15, men her antydes det.
 
-* Scene 3, Ingen Skrædder. *Falskhed i Middelklasse* — drengene ligner middelklassedrenge, men de er falske: bastarder, tyende.
+* Scene 3, Ingen Skrædder. *Falskhed i Middelklasse* – drengene ligner middelklassedrenge, men de er falske: bastarder, tyende.
 
-* Scene 3, Sin Moders smukke, grönne Öjne. Herrens blik kortvarigt paa Husholdersken — Husholdersken må være drengens mor og har de samme smukke, grønne øjne.
+* Scene 3, Sin Moders smukke, grönne Öjne. Herrens blik kortvarigt paa Husholdersken – Husholdersken må være drengens mor og har de samme smukke, grønne øjne.
 
-* Scene 3, kanske — ældre dansk synonym for måske.
+* Scene 3, kanske – ældre dansk synonym for måske.
 
-* Scene 3, Reaktioner paa Vægtskaalen — Sønnerne bliver målt og vejet mentalt.
+* Scene 3, Reaktioner paa Vægtskaalen – Sønnerne bliver målt og vejet mentalt.
 
-* Scene 4, “Tykke Heste med Striber.” … Pegefinger, alle følger Retningen. Giraffer i Sigte — Skuffelse over synet af zebraer —  de er bare heste med striber. Girafferne er derimod spændende.
+* Scene 4, “Tykke Heste med Striber.” … Pegefinger, alle følger Retningen. Giraffer i Sigte – Skuffelse over synet af zebraer –  de er bare heste med striber. Girafferne er derimod spændende.
 
-* Scene 4, “Etikettebrud” — Må kun tale når tiltalt.
+* Scene 4, “Etikettebrud” – Må kun tale når tiltalt.
 
-* Scene 4, “Ooh—” svarer Staldknægten — Han indser sin fejl.
+* Scene 4, “Ooh–” svarer Staldknægten – Han indser sin fejl.
 
-* Scene 4, *Underklassens Fabeldyr; Manifestation i fabelagtige Dyr —* Zoo er en magisk oplevelse. For drengene, underklassen er dyrene kun fortællinger som dragen og enhjørningen. Her manifesterer de sig.
+* Scene 4, *Underklassens Fabeldyr; Manifestation i fabelagtige Dyr –* Zoo er en magisk oplevelse. For drengene, underklassen er dyrene kun fortællinger som dragen og enhjørningen. Her manifesterer de sig.
 
-* Scene 4, “Hold da op, godt det ikke—” — \[er mig, der skal muge ud efter den.\]
+* Scene 4, “Hold da op, godt det ikke–” – \[er mig, der skal muge ud efter den.\]
 
-* Scene 4, Fruentimmer i Uniform, Barnepige — Barnet er overklasse, da barnepigen bærer uniform. Ikke middelklasse.
+* Scene 4, Fruentimmer i Uniform, Barnepige – Barnet er overklasse, da barnepigen bærer uniform. Ikke middelklasse.
 
-* Scene 4, Herren rømmer sig. Nedstirrer Uniformen —  Ikke barnepigen. Hun kender sin pligt og skal fjerne pigen fra hans åsyn.
+* Scene 4, Herren rømmer sig. Nedstirrer Uniformen –  Ikke barnepigen. Hun kender sin pligt og skal fjerne pigen fra hans åsyn.
 
-* Scene 4, Herren løfter höjre Haand en smule — Han vil skabe afstand til pigen.
+* Scene 4, Herren løfter höjre Haand en smule – Han vil skabe afstand til pigen.
 
-* Scene 4, Barnets skingre Stemme svagere i Baggrunden — pigen har flyttet sig til næste udstilling, men man kan stadig høre hendes stemme.
+* Scene 4, Barnets skingre Stemme svagere i Baggrunden – pigen har flyttet sig til næste udstilling, men man kan stadig høre hendes stemme.
 
-* Scene 4, Barnepigen usikker i Svar — hun er ikke usikker. Barnet er overklasse og skal trænes i at se ned på andre. Barenepigen sympatiserer nok med negerne, men det kan hun ikke sige offentligt.
+* Scene 4, Barnepigen usikker i Svar – hun er ikke usikker. Barnet er overklasse og skal trænes i at se ned på andre. Barenepigen sympatiserer nok med negerne, men det kan hun ikke sige offentligt.
 
-* Scene 4, Herrens Smil forstummes. Irriteret: “Lad os tøve en Kende.” — Han vil af med pigen.  
+* Scene 4, Herrens Smil forstummes. Irriteret: “Lad os tøve en Kende.” – Han vil af med pigen.  
   Tøve en Kende, fast udtryk, vente.
 
-* Scene 4, Lang dialog om blåhvalen og elefantlort — Herren  trækker tiden med vilje for at slippe med pigebarnet.
+* Scene 4, Lang dialog om blåhvalen og elefantlort – Herren  trækker tiden med vilje for at slippe med pigebarnet.
 
-* Scene 4, Ivans Öjne som Tekopper — afledt af eventyret Fyrtøjet — ikke en metafor.
+* Scene 4, Ivans Öjne som Tekopper – afledt af eventyret Fyrtøjet – ikke en metafor.
 
-* Scene 5, Lommelærke, Slurk, Englesang, Hatten Passer — fra det faste udtryk: så hatten passer, han har fået rigeligt alkohol indenbords \= englene synger.
+* Scene 5, Lommelærke, Slurk, Englesang, Hatten Passer – fra det faste udtryk: så hatten passer, han har fået rigeligt alkohol indenbords \= englene synger.
 
 * Scene 5, ikke for hvide mennesker, fast udtryk, urimeligt hårdt.
 
-* Scene 5, Englesang i Stereo — drikker igen.
+* Scene 5, Englesang i Stereo – drikker igen.
 
-* Scene 6, Herren banker paa sit Glas og rejser sig — der er et kæmpe symbol i, at han rejser sig for bastarderne, underklassen. En slags ed. Vi skal stole på hans ord.
+* Scene 6, Herren banker paa sit Glas og rejser sig – der er et kæmpe symbol i, at han rejser sig for bastarderne, underklassen. En slags ed. Vi skal stole på hans ord.
 
-* Scene 7, “Skulde han ikke passe Faders Præmiesvin?” Ivan, upassende fræk — fræk, da han henviser til Herren med Fader. Det må han jo ikke som bastard.
+* Scene 7, “Skulde han ikke passe Faders Præmiesvin?” Ivan, upassende fræk – fræk, da han henviser til Herren med Fader. Det må han jo ikke som bastard.
 
 * Scene 7, Ugler i mosen, fast udtryk, der foregår noget fordækt.
 
-* Scene 10, *Varulv, Fenris, Ivan. —* Fenris \= Fenrisulven
+* Scene 10, *Varulv, Fenris, Ivan. –* Fenris \= Fenrisulven
 
-* Scene 10, *Christian maa hyle blandt Ulve —* lettere omskrivning af at må hyle blande de ulve man er iblandt, talemåde, blive nødt til at indordne sig og tilpasse sin adfærd efter de uskrevne regler som gælder blandt de mennesker man befinder sig blandt.
+* Scene 10, *Christian maa hyle blandt Ulve –* lettere omskrivning af at må hyle blande de ulve man er iblandt, talemåde, blive nødt til at indordne sig og tilpasse sin adfærd efter de uskrevne regler som gælder blandt de mennesker man befinder sig blandt.
 
-* Scene 11, *Graveerfaring fra crème brûlée* — herren har aldrig gravet et hul, aner ikke hvor hårdt det er. Han har kun erfaring fra at grave i en dessert.
+* Scene 11, *Graveerfaring fra crème brûlée* – herren har aldrig gravet et hul, aner ikke hvor hårdt det er. Han har kun erfaring fra at grave i en dessert.
 
-* Scene 14, Service til sejsten — 1892 stavemåde af seksten.
+* Scene 14, Service til sejsten – 1892 stavemåde af seksten.
 
 * Scene 14, hviler i sig selv, fast udtryk, være i besiddelse af en indre ro og selvtillid.
 
-* Scene 14, skider lysegrönne Grise — overført betydning, være meget bange og nervøs.
+* Scene 14, skider lysegrönne Grise – overført betydning, være meget bange og nervøs.
 
-* Scene 14, Børge, Logebrødrenes Drikkeri, Imitation. *Den oprigtigste Form for Smiger —* fra ordsproget: imitation er den oprigtigste form for smiger. Børge drikker igennem.
+* Scene 14, Børge, Logebrødrenes Drikkeri, Imitation. *Den oprigtigste Form for Smiger –* fra ordsproget: imitation er den oprigtigste form for smiger. Børge drikker igennem.
 
-* Scene 14, *Vejen til Mandens Hjærte gjennem Maven —* lettere omskrivning af talemåden: vejen til en mands hjerte går gennem maven \= man vinder en mands kærlighed ved at lave god mad til ham.
+* Scene 14, *Vejen til Mandens Hjærte gjennem Maven –* lettere omskrivning af talemåden: vejen til en mands hjerte går gennem maven \= man vinder en mands kærlighed ved at lave god mad til ham.
 
-* Scene 14, *Sommerfuglelarver i Mavsen —* pudsig omskrivning af det faste udtryk: at have sommerfugle i maven, følelse af nervøsitet der ytrer sig ved en kildrende fornemmelse i mellemgulvet.
+* Scene 14, *Sommerfuglelarver i Mavsen –* pudsig omskrivning af det faste udtryk: at have sommerfugle i maven, følelse af nervøsitet der ytrer sig ved en kildrende fornemmelse i mellemgulvet.
 
-* Scene 15, *Morgenstund har Guld i Mund —* ordsprog, morgenen er en glædelig tid fyldt med nye muligheder — man har gavn af at starte dagen tidligt.
+* Scene 15, *Morgenstund har Guld i Mund –* ordsprog, morgenen er en glædelig tid fyldt med nye muligheder – man har gavn af at starte dagen tidligt.
 
-* Scene 15, Tantalus — aflåst trækasse til karafler med alkohol, så personalet ikke drikker i smug.
+* Scene 15, Tantalus – aflåst trækasse til karafler med alkohol, så personalet ikke drikker i smug.
 
-* Scene 16, *Pikkan —* svenskificering af pikken. Ivan forstår ikke svensk og pikken er alligevel for vulgært for herren.
+* Scene 16, *Pikkan –* svenskificering af pikken. Ivan forstår ikke svensk og pikken er alligevel for vulgært for herren.
 
-* Scene 18, Herren, sig selv i Nakken — omskrivning at den overførte betydning: tage sig selv i nakken \=  anstrenge sig meget for at gennemføre eller leve op til noget.
+* Scene 18, Herren, sig selv i Nakken – omskrivning at den overførte betydning: tage sig selv i nakken \=  anstrenge sig meget for at gennemføre eller leve op til noget.
 
 * Scene 18, Løber om Hjörner, omskrivning af: løbe om hjørner med, overført betydning, narre; snyde.
 
-* Scene 18, Og saa maa du arrangerer smaa Ulykker for Børge og Christian — dette er bevidst i modstrid med scene 21, hvor Ivan siger: “Naaja, og saa skulde jeg lige arrangere tre fatale Uheld.” Ivans matematiske logik, han har begået to mord, men reddet sine tre brødre. Han er netto \-1 morder.
+* Scene 18, Og saa maa du arrangerer smaa Ulykker for Børge og Christian – dette er bevidst i modstrid med scene 21, hvor Ivan siger: “Naaja, og saa skulde jeg lige arrangere tre fatale Uheld.” Ivans matematiske logik, han har begået to mord, men reddet sine tre brødre. Han er netto \-1 morder.
 
-* Scene 19, svensk Pølseret — slang for Herrens pik i aktion.
+* Scene 19, svensk Pølseret – slang for Herrens pik i aktion.
 
-* Scene 19, Hegnet i Herren — dramatisk omskrivning, Herren har drukket sig i hegnet, er svenskerstiv, dobbeltbetydning, stærkt beruset som kun en svensker.
+* Scene 19, Hegnet i Herren – dramatisk omskrivning, Herren har drukket sig i hegnet, er svenskerstiv, dobbeltbetydning, stærkt beruset som kun en svensker.
 
-* Scene 20, Ivan som Krokodille — omskrivning Krokodilletårer.
+* Scene 20, Ivan som Krokodille – omskrivning Krokodilletårer.
 
-* Scene 21, ført Logen bag Lyset — føre nogen bag lyset, overført betydning, snyde nogen; lyve for nogen.
+* Scene 21, ført Logen bag Lyset – føre nogen bag lyset, overført betydning, snyde nogen; lyve for nogen.
 
-* Scene 21, “Vi kan takke Jens for den rene Kælder. Sikke dog et Svineri. Ufattelige mængder Blod.” — dette stemmer ikke overens med kvælning, hvor der ikke ville være meget blod. Jens har ikke modtage træning i Jagt, så det er sandsynligvis Ivan, som har slagtet Bettina i kælderen med Jens som medhjælper. Jeg har så ryddet pænt op bagefter.
+* Scene 21, “Vi kan takke Jens for den rene Kælder. Sikke dog et Svineri. Ufattelige mængder Blod.” – dette stemmer ikke overens med kvælning, hvor der ikke ville være meget blod. Jens har ikke modtage træning i Jagt, så det er sandsynligvis Ivan, som har slagtet Bettina i kælderen med Jens som medhjælper. Jeg har så ryddet pænt op bagefter.
