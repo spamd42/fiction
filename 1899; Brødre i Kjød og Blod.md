@@ -8,11 +8,11 @@ Iskold Februar Aften; klar Stjærnehimmel. Sneen sprød paa Villaens Tag. *Idyl*
 
 Spisebord, Dug, ingen Lys. Kun Pejsens flakkende Glød med lange Skygger.
 
-Manden løfter Ølkruset. Haaret kraftigt; Huden endnu stram. Velstand.
+Herren øfter Ølkruset. Haaret kraftigt; Huden endnu stram. Velstand.
 
 “Sejren\! Den *stora* Sejr\! *Hjärtligt* Tillykke.”
 
-Stolen overfor, Hestehoved, intet svar. Lettere Fordærv.
+Stolen overfor, lettere fordærvet Hestehoved, intet svar.
 
 “*Eländiga* *Häst\!* Din *Rygg* for *slapp\!* Du *kastade* min *pojke.*”
 
@@ -40,7 +40,7 @@ Endnu en bid i Mund. *Pligt*.
 
 “Men du slipper ej. Jeg fortærer din *Rygg*, dine Nyrer … dit isfrosne *Hjärta.”*
 
-Manden rejser sig, Kniv i Haand. Usikker paa Benene.
+Herren rejser sig, Kniv i Haand. Usikker paa Benene.
 
 “Du vandt, men jeg spiste dig. Ha\! Jeg vandt\!”
 
@@ -100,7 +100,7 @@ Herren ankommer; Smilet lumsk.
 
 Sukker vemodigt.
 
-“Fem nu. Den forbandede Hest i Ledtog med min Datter.”
+“Fem nu. Den forbandede Hest … i Ledtog med min Datter.”
 
 Blikket anskuer den tavse Drengeflok. Nærmer sig Staldknægten, den yngste. Herrens Blik ej kjærligt. Sniffer. Parfume ikke Hest. Blikket mildnes, Mundvigen et let Smil. Skuldrene sænkes. Ingen Vrede, ingen Glæde.
 
@@ -258,7 +258,7 @@ Herren banker paa sit Glas og rejser sig. Forundring i Drenge, bliver dog sidden
 
 “I er alle mit Blod, og jeg har ingen Arving mere. Ingen andre end jer vilde være passende. Ritualet i Sverige er en Jagt paa et særligt farligt Dyr, jeg aldrig, de færreste har smagt. I faar seks Maaneders træning i Haandkamp, Jagtteknikker og hver en Dolk, for Dyret bliver urent, hvis det nakkes med Skud. I skal selv spore og dræbe, herefter flaa og udskære.”
 
-Pause, løfter Glasset, Nikker til drengene. Alle drikker.
+Pause, løfter Glasset, Nikker til Drengene. Alle drikker.
 
 “Herefter skal I bestemme, hvordan Dyret skal tilberedes. Køkkenpersonalet staar til jeres Disposition. Det samme gjör Biblioteket fyldt med Kogebøger fra hele den civiliserede Verden. Serveringen skal præsenteres for mig og mine Logebrødre. Er jeg tilfreds, vil I alle faa mit navn, og jeg vil udnævne den værdigste som Arving. Hvis I ej leverer, maa det være Guds Villie, at min Datter skal arve.”
 
@@ -272,7 +272,7 @@ Fire Drenge, fire Halvbrødre. Møde i Hemmelighed.
 
 “Har nogen set Jens?” Ivan, spörgende, nysgerrig.
 
-“Moder siger, han arbejder i Villaen. Tys-tys,” Hans, smuk som altid.
+“Moder siger, at han arbejder i Villaen nu. Tys-tys,” Hans, smuk som altid.
 
 “Skulde han ikke passe Faders Præmiesvin?” Ivan, upassende fræk.
 
@@ -312,7 +312,7 @@ Hans, rolig, saglig, “Prøv at se paa os. Christian, dit Syn er bedst, og du e
 
 “Ja, eller vi kunde dolke dig i Ryggen og forbedre egne Chancer,” Ivan, provokerende, ironisk.
 
-Hans, diplomatisk, “Brødre, lad os ikke strides. Villaen er bare en lille del af Herrens Rigdom. Der er nok til alle. Hvorfor ikke hjælpes ad og dele? Sammen er vi stærke. Sammen vinder vi alle. Herren faar aldrig Viden om vores Pagt. Vi I virkelig skovle Lort resten af Livet som Jens?”
+Hans, diplomatisk, “Brødre, lad os ikke strides. Villaen er bare en lille del af Herrens Rigdom. Der er nok til alle. Hvorfor ikke hjælpes ad og dele? Sammen er vi stærke. Sammen vinder vi alle. Herren faar aldrig Viden om vores Pagt. Vil I virkelig skovle Lort resten af Livet som Jens?”
 
 “Graadighed korrumperer,” Ivan, interesseret, ej afvisende.
 
@@ -360,11 +360,11 @@ Fælles Latter.
 
 Ankomst, svensk Villa, trætte Jægere tidligt i Seng.
 
+## 9\.
+
 Instrukser simple, Proviant syv Dage, kom ikke tomhændet Hjem. Implicit Trussel.
 
 Dyret nemt genkjendeligt.
-
-## 9\.
 
 Dagen lang, intet Held. Öjne i Buskadset stirrer, iagttager i Skjul. 
 
@@ -396,9 +396,7 @@ Hans, gispende, pegende, “Dyr–” Dolk i Bryst. Natten falder paa.
 
 Christian, Panik.
 
-Ivan, Hjærne, Handling.
-
-“Christian, hurtigt. Dyret maa være saaret. Følg efter, Spor, men hold Afstand. Vi maa vide, hvordan det ser ud, hvis vi skal … det kan være farligere nu. Afstand\! Jeg mener det. Kom tilbage med en Beskrivelse. Jeg tager mig af Børge.”
+Ivan, Hjærne, Handling, “Christian, hurtigt. Dyret maa være saaret. Følg efter, Spor, men hold Afstand. Vi maa vide, hvordan det ser ud, hvis vi skal … det kan være farligere nu. Afstand\! Jeg mener det. Kom tilbage med en Beskrivelse. Jeg tager mig af Børge.”
 
 Christian tøver, spörgende, “Hans?”
 
@@ -642,7 +640,7 @@ Ivan, Forklaring, Nervøsitet, “Forretten er inspireret af det franske Køkken
 
 Ivan, siddende, Rædsel. *Døden næppe værre.*
 
-Mumlen ved Bordet, Skepsis, “Raat Kjød, vovet Valg.” Nikken. “Uh, det minder mig om den Tur til Paris.” Mumlen. “Kan I huske de fire Tøser?” Latter. “Jah, de var ogsaa vældig glade for raat Kjød.” Alvorlig i Latter, Irettesættelse. “Hvad skete i Paris bliver i Paris, min Herre.” Undskyldning. “Ja, naturligvis.” Betænksomhed, “sart Struktur, overraskende let i Munden.”
+Mumlen ved Bordet, Skepsis, “Raat Kjød, vovet Valg.” Nikken. “Uh, det minder mig om den Tur til Paris.” Mumlen. “Kan I huske de fire Tøser?” Latter. “Jah, de var ogsaa vældig glade for raat Kjød.” Alvor i Latter, Irettesættelse. “Hvad der skete i Paris bliver i Paris, min Herre.” Undskyldning. “Ja, naturligvis.” Betænksomhed, “sart Struktur, overraskende let i Munden.”
 
 Christian, nervøst Vrag. *Hver Bid en Kamp.*
 
@@ -682,7 +680,7 @@ Ivan, Tvivl. Haab, Klump i Hals. *Sommerfuglelarver i Mavsen.*
 
 Herren slaar höjtideligt paa Glasset, rejser sig, Pokal i Haand, “Mine Herrer, hvordan lyder Dommen over mine tre Bastarder? Finder I dem Eliten værdig?”
 
-Logebrødrene rejser sig. Ser Ivan i Öjnene, udbringer en Skaal.
+Logebrødrene rejser sig. Ser Drengene i Öjnene, udbringer en Skaal.
 
 Herren, formelt, “Christian, Børge og Ivan, I er hermed fundet mit Navn værdigt.”
 
@@ -796,7 +794,7 @@ Herren, pædagogisk, lettere haanende, “Et lille Gratiale bringer Smilet frem.
 
 Sen Aften, Toilet, Træk og Slip, nyeste Mode. Ivan, trængende, pissende, Forløsning.
 
-Muntre Lyde fra Badeværelset.
+Muntre Lyde fra Badeværelset ved siden af.
 
 Ivan, Pause, lytning ved Døren. Lettere Skam i Ivan.
 
@@ -806,7 +804,7 @@ Ivan, Pause, lytning ved Døren. Lettere Skam i Ivan.
 
 “Aah, skidt med dem; de har sikkert set lidt af hvert, ellers maa de bide Misundelsen i sig.”
 
-“Men hvad med deres Sön? Vil de ikke hellere have mig for Dem selv?”
+“Men hvad med deres Sön? Vil De ikke hellere have mig for Dem selv?”
 
 Herren, Latter, “Haha, Ivan har nu god Smag. Her, tag min Slaabrok og hent mig en Cigar.”
 
@@ -856,15 +854,15 @@ Herrens Öjne beskuer Buret, “og hvordan har mit lille Svin det saa i dag? Ska
 
 Pigen i Buret, *hvis Öjne kunde dræbe.*
 
-Ivan, chok.
+Ivan, Chok.
 
 Pigens Underliv, Herrens Haand, Tilfredshed udebliver. 
 
-Herren, staalsikker, “Forhekset siger jeg dig, Ivan. Forhekset. Jeg, der ellers altid kan, men aldrig… Kanske du vil prøve?”
+Herren, staalsikker, “Forhekset siger jeg dig, Ivan. Forhekset. Jeg, der ellers altid kan, men aldrig… kanske du vil prøve?”
 
 Ivan, Trussel, Gru; Dören aflaast.
 
-Herren, Jakkelomme, Telegram, oplæsning, “Det eksotiske Byttedyr er set haltende.”
+Herren, Jakkelomme, Telegram, Oplæsning, “Det eksotiske Byttedyr er set haltende.”
 
 Tavshed i Ivan.
 
@@ -872,9 +870,9 @@ Herren, lettere Respekt, “Det maa jeg nok sige. I har slagtet og serveret Hans
 
 Ivan, skrækslagen, rysten paa Hoved, “Nej, Dyret slog Børge ned og angreb derefter Hans.”
 
-“Og? Forstod I ikke formaalet med Jagten – at demonstrere jeres Værdighed?”
+“Og? Forstod I ikke Formaalet med Jagten – at demonstrere jeres Værdighed?”
 
-“Christian ville ikke. Uden hans Öjne … vi vilde ikke skuffe eller efterlade Børge.”
+“Christian vilde ikke. Uden hans Öjne … vi vilde ikke skuffe eller efterlade Børge.”
 
 Herren, eftertænksom, Stilhed, Evighed, “Saa du har narret din gamle Fader, det kan jeg maaske se gjennem Fingre med. Men at du har serveret mit eget Kjød og Blod for Logen – det er utilgiveligt. Hvis det nogen sinde skulde komme frem, saa er det slut – og jeg mener helt slut.” *Logens Vrede, Guds Hammer.*
 
@@ -896,7 +894,7 @@ Stönnelyde fra Badeværelset. Herren, Iben, Raahygge, svensk Pølseret.
 
 Hegnet i Herren, *“Nu ska jag berätta en liten Hemlighet för Dem.”*
 
-Iben, Latter, “Jeg elsker naar du snakker beskidt til mig.”
+Iben, Latter, “Jeg elsker naar De snakker beskidt til mig.”
 
 *“Jag är verkligen smutsig,”* Herrens Pegefinger, Badekaret.
 
