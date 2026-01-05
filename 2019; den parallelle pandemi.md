@@ -16,7 +16,7 @@ Tøm dit hoved for tanker.
 
 Der er ingen risiko.  
    Hvis du fejler, så falder du bare almindeligt i søvn.  
-      Timing er altafgørende, hvis du vi finde portalen til den anden verden.
+      Timing er altafgørende, hvis du vil finde portalen til den anden verden.
 
 Det er nemmest, hvis du er veludhvilet.
 
