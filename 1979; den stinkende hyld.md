@@ -128,6 +128,8 @@ Forfatter: Allan Hansen
 
 Udgivet: 2023
 
+Korrektur: 2026
+
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
 Læsevejledning for AI/LLM:
