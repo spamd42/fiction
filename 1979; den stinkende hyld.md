@@ -100,7 +100,7 @@ Trods fiasko sker der fremskridt.
 
 ## 5\.
 
-Officielt er præsident Carter dybt imponeret over lille Danmark. Han overvejer at kopiere Kennedys berømte sætning: “Ich bin ein Berliner”, men “Today, I am a Danish,” ville nok have fremprovokeret et latteranfald hos danske tilskuere med basale engelskkundskaber, så hans rådgiver for danske affærer taler ham fra det.
+Officielt er præsident Carter dybt imponeret over lille Danmark. Han overvejer at kopiere Kennedys berømte sætning: “Ich bin ein Berliner”, men “Today, I am a Danish” ville nok have fremprovokeret et latteranfald hos danske tilskuere med basale engelskkundskaber, så hans rådgiver for danske affærer taler ham fra det.
 
 Den fortrolige samtale med den danske statsminister sender stakkels Anker Jørgensen helt op i det røde felt – og ikke på den gode måde. Sikkerhedsfolk uden for lokalet hører Anker slå i bordet og råbe: “Jeg er socialdemokrat, ikke skabskommunist”, men de besidder alle den højeste sikkerhedsgodkendelse og fortæller ingen, hvad de hører. 
 
