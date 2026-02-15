@@ -8,17 +8,17 @@ Mehmet omfavnede Danmark som en sommerfuglelarve desperat for metamorfose. Med e
 
 Mehmet fandt hurtigt ud af, at han aldrig skulle tilbage. Danmark var et slaraffenland med sjove skikke og smukke piger. Den underfundige humor var det sværeste at forstå. Af en eller anden mærkelig årsag kaldte alle på arbejdspladsen ham for Benjamin, og det hjalp ikke at forklare, at han altså hed Mehmet.
 
-Nu var han ikke dårlig til sit håndværk, så gutterne var flinke nok til at invitere ham på en fredagsbajer. Mehmet var dog kvik nok til at lugte ugler i mosen og undskyldte med, at hans moder lå syg, men næste uge ville være helt fint. Om natten kunne han ikke sove og begyndte at frygte den kommende fredag. Det hjalp ikke at spørge sine venner, da de var ligeså blanke som ham. I stedet vandrede han byens gader efter arbejdstid og brugte sit ualmindelige kønne udseende til at falde i snak med søde danske piger. De var temmelig frisindede i forhold til, hvad Mehmet var vant til, men også yderst behjælpsomme med hans sprogudfordringer.
+Nu var han ikke dårlig til sit håndværk, så gutterne var flinke nok til at invitere ham på en fredagsbajer. Mehmet var dog kvik nok til at lugte ugler i mosen og undskyldte med, at hans moder lå syg, men næste uge ville være helt fint. Om natten kunne han ikke sove og begyndte at frygte den kommende fredag. Det hjalp ikke at spørge sine venner, da de var lige så blanke som ham. I stedet vandrede han byens gader efter arbejdstid og brugte sit ualmindelige kønne udseende til at falde i snak med søde danske piger. De var temmelig frisindede i forhold til, hvad Mehmet var vant til, men også yderst behjælpsomme med hans sprogudfordringer.
 
 Næste fredag tog Mehmet chancen et minut før fyraften: – Nå tøser, skal Benjamin købe jer en rød sodavand, eller er I mænd nok til at drikke en guldbamse eller to med Mehmet? Det er vist min omgang. 
 
-Som forventet var det ikke en dyr udskænkning, da de fleste viste deres sande jeg og fik travlt med at opdigte undskyldninger. De skulle under ingen omstændigheder ses i byen drikkende med en perker – det var de mentalt slet ikke klar til. Arrangementet var en succes. Mehmet blev aldrig kaldt Benjamin igen, og de få som deltog blev hans “danske venner” – i hvert fald på arbejdspladsen.
+Som forventet var det ikke en dyr udskænkning, da de fleste viste deres sande jeg og fik travlt med at opdigte undskyldninger. De skulle under ingen omstændigheder ses i byen drikkende med en perker – det var de mentalt slet ikke klar til. Arrangementet var en succes. Mehmet blev aldrig kaldt Benjamin igen, og de få, som deltog, blev hans “danske venner” – i hvert fald på arbejdspladsen.
 
-Et af de typiske samtaleemner på værkstedet var kønne kællinger og seksuel præstation med konen. Næsten hver eneste kommentar kunne misforstås med vilje og kommenteres med ‘det sagde hun osse i går’. Værkstedet var desuden udsmykket med nøgne damer i hobetal. Den tradition var ny for Mehmet, men som han fortalte sine venner fra hjemlandet:  ‘Skik følge eller land fly’.
+Et af de typiske samtaleemner på værkstedet var kønne kællinger og seksuel præstation med konen. Næsten hver eneste kommentar kunne misforstås med vilje og kommenteres med ‘det sagde hun osse i går’. Værkstedet var desuden udsmykket med nøgne damer i hobetal. Den tradition var ny for Mehmet, men som han fortalte sine venner fra hjemlandet:  ‘Skik følge eller land fly.’
 
-Mehmet fandt det ret så morsomt, at de danske kolleger havde det meste i kæften og sjældent gjorde noget ud af deres interesse. Særlig interessant var de mange retoriske spørgsmål: ‘Nå, tror du, hun er ægte blondine?’ Hvordan skulle han kunne svare på det? I stedet for at svare ‘Høhø’, tilbød han derfor at gøre en indsats for at afdække mysteriet, hvis altså kollegaen havde hendes adresse. Det blev slet ikke modtaget, som Mehmet havde forventet. Der gik flere uger førend, han gennemskuede, at dette brød en af Jantes mange love om ikke at føre sig frem og prale. Men Mehmet pralede jo ikke. Han gik generelt godt i spænd med de danske piger. Nogen ville ikke snakke med ham, andre ville gerne, nogle savlede og nogen havde bestemt en anden hårfarve på missen end på hovedet. Fred med det, men Mehmet foretræk nu de ægte blondiner. Om de så havde det sjovere end de falske, var et mysterium i sig selv.
+Mehmet fandt det ret så morsomt, at de danske kolleger havde det meste i kæften og sjældent gjorde noget ud af deres interesse. Særligt interessant var de mange retoriske spørgsmål: ‘Nå, tror du, hun er ægte blondine?’ Hvordan skulle han kunne svare på det? I stedet for at svare ‘Høhø’, tilbød han derfor at gøre en indsats for at afdække mysteriet, hvis altså kollegaen havde hendes adresse. Det blev slet ikke modtaget, som Mehmet havde forventet. Der gik flere uger, førend han gennemskuede, at dette brød en af Jantes mange love om ikke at føre sig frem og prale. Men Mehmet pralede jo ikke. Han gik generelt godt i spænd med de danske piger. Nogle ville ikke snakke med ham, andre ville gerne, nogle savlede og nogle havde bestemt en anden hårfarve på missen end på hovedet. Fred med det, men Mehmet foretrak nu de ægte blondiner. Om de så havde det sjovere end de falske, var et mysterium i sig selv.
 
-Mehmets udskejelser voksede langsomt. Han drak hver eneste weekend og prøvede at ryge noget fjolletobak sammen med et par kønne pige. Det udviklede sig til eksperimenter med amfetamin og lsd. Snart kunne arbejdet ikke betale for forbruget, men det gjorde ikke så meget, for han havde fundet fast sammen med en blond pige med rige forældre. Han havde dog aldrig mødt disse, og de ville nok have afskåret pigebarnet, hvis de vidste hvad hun brugte pengene på. Snart blev hun gravid med sønnen Ilhan, men inden Mehmet fik ham at se, tog Mehmet et mærke lsd for meget og indså, at det var på tide at forlade den trygge puppe. Han foldede sine prægtige vinger ud, og smukt som en anden sommerfugl fløj han elegant i knap tolv meter. Helt uventet fejlede landingen. Pigen håndterede hans død på sin egen måde ved at ryge heroin kort tid efter, Ilhan blev født. Sønnen voksede derfor op hos sin onkel i et langt mere traditionelt miljø.
+Mehmets udskejelser voksede langsomt. Han drak hver eneste weekend og prøvede at ryge noget fjolletobak sammen med et par kønne piger. Det udviklede sig til eksperimenter med amfetamin og lsd. Snart kunne arbejdet ikke betale for forbruget, men det gjorde ikke så meget, for han havde fundet fast sammen med en blond pige med rige forældre. Han havde dog aldrig mødt disse, og de ville nok have afskåret pigebarnet, hvis de havde vidst, hvad hun brugte pengene på. Snart blev hun gravid med sønnen Ilhan, men inden Mehmet fik ham at se, tog Mehmet et mærke lsd for meget og indså, at det var på tide at forlade den trygge puppe. Han foldede sine prægtige vinger ud, og smukt som en anden sommerfugl fløj han elegant i knap tolv meter. Helt uventet fejlede landingen. Pigen håndterede hans død på sin egen måde ved at ryge heroin, kort tid efter Ilhan blev født. Sønnen voksede derfor op hos sin onkel i et langt mere traditionelt miljø.
 
 \~\~\~ Koret \~\~\~  
 Som to hanner i brunst udfordrede Mehmet store Jante.  
@@ -42,7 +42,7 @@ Således faldt den smukke sommerfugl – retfærdighed?
 
 – Tjoh, det kunne vi måske godt overveje.
 
-*Hvilken glimrende idé. Frem for at ligne en solbrændt pige med det lyse hår, så fremstår du mere maskulin med det sorte. Måske skal vi have moder til at lægge en anelse sminke, bare en lille tynd, mørk streg hist og her. Når den sorte hårfarve slipper op, så farver vi dig grøn, og senere måske orange. Til sidst er der ingen, der kan huske, hvordan du startede, så de bliver derfor ikke voldsomt overrasket, når din sande tone afsløres.*
+*Hvilken glimrende idé. Frem for at ligne en solbrændt pige med det lyse hår, så fremstår du mere maskulin med det sorte. Måske skal vi have moder til at lægge en anelse sminke, bare en lille tynd, mørk streg hist og her. Når den sorte hårfarve slipper op, så farver vi dig grøn, og senere måske orange. Til sidst er der ingen, der kan huske, hvordan du startede, så de bliver derfor ikke voldsomt overraskede, når din sande tone afsløres.*
 
 \~\~\~ Koret \~\~\~  
 Hårets farve skjuler ej blodets skam.  
@@ -67,11 +67,11 @@ Se, hvordan faderens øje hælder mod den yngste søn.
 Misundelsens flamme tændes i den ældstes bryst.  
 Således bygges tragediens alter – sten på sten, ord på ord.
 
-Ozan beretter begejstret om et emne, som alle på skolen har diskuteret: Den næste generation af robotter med kunstig intelligens, der kan sættes til at udføre langt de fleste trivielle, manuelle opgaver. Rygterne siger, at de er lige på trapperne og slet ikke bliver urimeligt dyre, som først antaget. Langt billigere end de velkendte industrirobotter, som kræver en større skala og indkøring for at blive profitable. Rygterne taler om startpriser ned på en kvart til en halv million kroner, men så kommer der naturligvis vedligeholdelse, service, og så vil den danske regering sikkert pålægge skatter, ligesom på biler. Men, men – det kan de slet ikke, for så mister vi konkurrenceevne. Drømmen om det danske eksporteventyr knækker, hvis ikke vi er med fra starten.
+Ozan beretter begejstret om et emne, som alle på skolen har diskuteret: Den næste generation af robotter med kunstig intelligens, der kan sættes til at udføre langt de fleste trivielle, manuelle opgaver. Rygterne siger, at de er lige på trapperne og slet ikke bliver urimeligt dyre, som først antaget. Langt billigere end de velkendte industrirobotter, som kræver en større skala og indkøring for at blive profitable. Rygterne taler om startpriser ned på en kvart til en halv million kroner, men så kommer der naturligvis vedligeholdelse, service og så vil den danske regering sikkert pålægge skatter, ligesom på biler. Men men – det kan de slet ikke, for så mister vi konkurrenceevne. Drømmen om det danske eksporteventyr knækker, hvis ikke vi er med fra starten.
 
-Ozans tydelige begejstring preller af på Cihan, som ikke kunne være mere ligeglad med endnu et teknologisk produkt, han aldrig kommer til at bruge. Nej, Cihan er konservativ og hader alt nyt, i særdeleshed hvis det er amerikansk.
+Ozans tydelige begejstring preller af på Cihan, som ikke kunne være mere ligeglad med endnu et teknologisk produkt, han aldrig kommer til at bruge. Nej, Cihan er konservativ og hader alt nyt – i særdeleshed hvis det er amerikansk.
 
-Pointen er, at investeringen hurtigt er tjent hjem. Robotterne skal ikke have løn, og de vil give enhver virksomhed et gevaldigt produktionsløft, da de kan arbejde i døgndrift stort set uden pause. De vil sandsynligvis kunne servicere hinanden, måske ikke i starten, men med en snarlig opdatering, og så er det bare fuld fart på produktionen. Perfekt for en virksomhed med ensartede opgaver – som slagteriet.
+Pointen er, at investeringen hurtigt er tjent hjem. Robotterne skal ikke have løn, og de vil give enhver virksomhed et gevaldigt produktionsløft, da de kan arbejde i døgndrift, stort set, uden pause. De vil sandsynligvis kunne servicere hinanden, måske ikke i starten, men med en snarlig opdatering, og så er det bare fuld fart på produktionen. Perfekt for en virksomhed med ensartede opgaver – som slagteriet.
 
 \~\~\~ Koret \~\~\~  
 Som børn af Hefaistos’ hånd,  
@@ -81,16 +81,16 @@ vil mennesket guderne overgå?
 
 Cihan føler en pludselig vrede. Nu vil lillebror gøre ham og de andre slagtere arbejdsløse. 
 
-Far Ilhan bliver mod forventning slet ikke ophidset og lytter til argumenterne. Han føler, at denne aften er en god mulighed for at genforklare sin langsigtede forretningsstrategi. Han har jo gjort en dyd ud af, kun at ansætte hårdtarbejdende, ærlige trosfælder, hvilket har givet ham en stjerne i trossamfundet og virksomheden et helt uplettet renommé. Det har fungeret i årtier og er vejen frem, selv hvis resten af landet går af lave. Respekt og loyalitet – to klassiske dyder, som aldrig går af mode. Virksomheden giver jobs til samfundet, som belønner tilbage via indkøbspræferencer. 
+Far Ilhan bliver mod forventning slet ikke ophidset og lytter til argumenterne. Han føler, at denne aften er en god mulighed for at genforklare sin langsigtede forretningsstrategi. Han har jo gjort en dyd ud af kun at ansætte hårdtarbejdende, ærlige trosfælder, hvilket har givet ham en stjerne i trossamfundet og virksomheden et helt uplettet renommé. Det har fungeret i årtier og er vejen frem, selv hvis resten af landet går af lave. Respekt og loyalitet – to klassiske dyder, som aldrig går af mode. Virksomheden giver jobs til samfundet, som belønner tilbage via indkøbspræferencer. 
 
 \~\~\~ Koret \~\~\~  
 Smilende i Herrens hus, med troens ord på læben,  
 men gerningerne væves af list og svig i Dionysos’ favn.  
 På troens klippe står de – men hjertet tjener kun sig selv.
 
-Mor Mira siger ikke noget, hun kender jo sin plads, og desuden har Ilhan jo ret. Det har fungeret i næsten tredive år, siden de overtog slagteriet. Datteren, Zehra, den yngste af de tre børn, har imidlertid ikke lært at tie endnu. Hun er kvikkere end de fleste og spørger sarkastisk, hvordan samfundet vil få råd til at købe det håndudskårne kød, nu hvor alle chauffører, portører, rengøringsjob med flere bliver erstattet af maskiner. Ozan er imponeret over sin lillesøster. Godt gennemskuet af en 15-årig, men nu lagde faren netop vægt på respekt og loyalitet, så kommentaren var måske lidt malplaceret, men hun er jo så sød.
+Mor Mira siger ikke noget, hun kender jo sin plads, og desuden har Ilhan sikkert ret. Det har fungeret i næsten tredive år, siden de overtog slagteriet. Datteren, Zehra, den yngste af de tre børn, har imidlertid ikke lært at tie endnu. Hun er kvikkere end de fleste og spørger sarkastisk, hvordan samfundet vil få råd til at købe det håndudskårne kød, nu hvor alle chauffører, portører, rengøringsjob med flere bliver erstattet af maskiner. Ozan er imponeret over sin lillesøster. Godt gennemskuet af en 15-årig, men nu lagde faren netop vægt på respekt og loyalitet, så kommentaren var måske lidt malplaceret, men hun er jo så sød.
 
-Zehra er imidlertid godt klar over, at hun er gået over stregen, dog regner hun med at hendes nuttede ansigt er nok til at mildne farens udbrud. Det var vigtigt at sige, det der måtte siges, nu hvor faren ikke vil se realiteterne i øjnene og reagere på de umiddelbare trusler. Det er fint at tænke langsigtet, men ikke hvis man dør af sult i morgen. Zehra er desuden træt af det evindelige oksekød. Hun forstår udmærket prestigen i, at okse er blevet en særdeles dyr spise, så når man nu har et slagteri… Nej, lad danskerne æde sig fede i kylling og svin.
+Zehra er imidlertid godt klar over, at hun er gået over stregen; dog regner hun med, at hendes nuttede ansigt er nok til at mildne farens udbrud. Det var vigtigt at sige det, der måtte siges, nu hvor faren ikke vil se realiteterne i øjnene og reagere på de umiddelbare trusler. Det er fint at tænke langsigtet, men ikke hvis man dør af sult i morgen. Zehra er desuden træt af det evindelige oksekød. Hun forstår udmærket prestigen i, at okse er blevet en særdeles dyr spise, så når man nu har et slagteri… Nej, lad danskerne æde sig fede i kylling og svin.
 
 Zehra holder på en hemmelighed, idet hun faktisk har smagt bacon til en børnefødselsdag og absolut kunne lide det. Hun er dog kvik nok til ikke at fortælle det til faren, som jo nok ville gå amok af skam. Eller ville han? Zehra har ikke tænkt sig at udfordre skæbnen.
 
@@ -100,7 +100,7 @@ Som forventet smiler Ilhan blot af sin højtelskede datter. Emnet er ligesom udd
 
 Alle tre børn bor stadig hjemme i privaten ovenpå slagteriet.
 
-Cihan burde finde sig en pige og blive gift, men han står ikke just i høj kurs, og desuden er det er ekstremt praktisk at bo oven på sin arbejdsplads. Til familiens store ærgrelsen bliver hans holdninger mere og mere konservative og kompatible med trosretningen, sikkert grundet de mange timer, han bruger hver dag sammen med andre slagtere af samme sind. Ilhan mener, at sønnen er gået alt for langt, men han er nu en fremragende repræsentant for troen, og det er jo den, som holder slagteriet kørende, eller holdte, for de mange robotter i samfundet koster på bundlinjen. For Cihan er de mere end maskiner – endnu et forræderi fra den amerikanske djævel, et billede på alt det, han frygter og hader ved den moderne verden. 
+Cihan burde finde sig en pige og blive gift, men han står ikke just i høj kurs, og desuden er det ekstremt praktisk at bo oven på sin arbejdsplads. Til familiens store ærgrelse bliver hans holdninger mere og mere konservative og kompatible med trosretningen, sikkert grundet de mange timer, han bruger hver dag sammen med andre slagtere af samme sind. Ilhan mener, at sønnen er gået alt for langt, men han er nu en fremragende repræsentant for troen, og det er jo den, som holder slagteriet kørende, eller holdte, for de mange robotter i samfundet koster på bundlinjen. For Cihan er de mere end maskiner – endnu et forræderi fra den amerikanske djævel, et billede på alt det, han frygter og hader ved den moderne verden. 
 
 \~\~\~ Koret \~\~\~  
 Se på Cihan, en sten uden sjæl;  
@@ -109,7 +109,7 @@ trods troens flamme stærk i hans sind.
 
 Ozan er nu på sidste år på universitetet, og som det dydsmønster han er, skal han nok slutte på normeret tid. Nu er han kun moderat kvik i hovedet, så topkarakterer bliver det ikke til, men mon ikke flid og hans generelle tiltrækningskraft er nok til at lande ham et godt job.
 
-Bedre (eller værre afhængig af synsvinklen) går det for Zehra, som har antaget en identitet i stil med sin farfar. Hun vil være dansk for enhver pris og skide på traditionerne. Hendes intellekt er langt højere end Ozans – en ren tolvtalspige. Ilhan er stolt af sin datter og håber inderligt, at hun kan holde sig fra stofferne.
+Bedre (eller værre, afhængig af synsvinklen) går det for Zehra, som har antaget en identitet i stil med sin farfar. Hun vil være dansk for enhver pris og skide på traditionerne. Hendes intellekt er langt højere end Ozans – en ren tolvtalspige. Ilhan er stolt af sin datter og håber inderligt, at hun kan holde sig fra stofferne.
 
 Slagteriet har længe kørt på pumperne – som forudset. Den nye generation af robotter har taget verden med en tsunami, og ganske få virksomheder er blevet ekstremt rige. Kina har klaret sig relativt godt, idet borgernes ve og vel ikke betyder noget for kommunistpartiet. USA er nærmest brudt sammen, nu hvor mellemklassen er blevet til underklassen, og en ny over-overklasse er blevet etableret: dem som producerer de nye robotter. EU og Danmark kæmper bravt for at fastholde velfærdsmodellen, men det går generelt af helvede til – specielt i de rige lande med høje lønninger, som med tiden ikke er så høje længere.
 
@@ -121,9 +121,9 @@ Her synker de mægtige, her drukner de små
 
 Ilhans helbred er gået kraftigt ned af bakke i takt med slagteriets haltende økonomi. Han bliver nødt til at gøre det rigtige, men er det nu også det rigtige? Flere år med stress tager livet af ham, førend han får afsluttet – et pludseligt hjerteanfald.  
 
-Cihan og Ozan har i fællesskab gennemgået slagteriets økonomi. Eller rettere, Cihan måtte erkende nederlag og bede sin bror om hjælp. Konklusionen er dog klokkeklar: der skal en heftig kapitalindsprøjtning til, ellers må slagteriet lukkes. Ozan mener, at en sådan ville være at pisse i bukserne, medmindre man brugte den til at investere i fremtiden, ikke bare forsætte som hidtil. Cihan kunne ikke være mere uenig og indkalder til krisemøde, for nu er han jo familiens overhoved.
+Cihan og Ozan har i fællesskab gennemgået slagteriets økonomi. Eller rettere, Cihan måtte erkende nederlag og bede sin bror om hjælp. Konklusionen er dog klokkeklar: der skal en heftig kapitalindsprøjtning til, ellers må slagteriet lukkes. Ozan mener, at en sådan ville være at pisse i bukserne, medmindre man brugte den til at investere i fremtiden, ikke bare fortsætte som hidtil. Cihan kunne ikke være mere uenig og indkalder til krisemøde, for nu er han jo familiens overhoved.
 
-Mor Mira er underlig stille. Børnene tænker, at hun nok er i sorg. Spørger man Cihan, er det heller ikke hendes ansvar. Fars strategi er jo den rigtige og skal naturligvis videreføres – det har Cihan allerede besluttet. Midlertidige problemer er vel noget, som alle virksomheder er udsat for, det har han læst i avisen. Her i denne krisetid er det essentielt, at stå sammen som familie. Det er muligt, at der må afskediges en mand eller to, men Cihan skal nok arbejde 16 timer i døgnet for at kompensere. Ellers er det vel også på tide, at Ozan hjælper til. Det nytter ikke noget, at han tilbringer al sin tid med at studere. 
+Mor Mira er underlig stille. Børnene tænker, at hun nok er i sorg. Spørger man Cihan, er det heller ikke hendes ansvar. Fars strategi er jo den rigtige og skal naturligvis videreføres – det har Cihan allerede besluttet. Midlertidige problemer er vel noget, som alle virksomheder er udsat for, det har han læst i avisen. Her i denne krisetid er det essentielt at stå sammen som familie. Det er muligt, at der må afskediges en mand eller to, men Cihan skal nok arbejde 16 timer i døgnet for at kompensere. Ellers er det vel også på tide, at Ozan hjælper til. Det nytter ikke noget, at han tilbringer al sin tid med at studere. 
 
 Ozan ryster på hovedet, skælver indvendigt, men siger ikke noget. Storebroren er betydeligt større og stærkere end ham – arbejdet som slagter er fysisk hårdt. Ozan kigger Zehra i øjnene og læser hendes tanker uden videre: *Lad falde, hvad der ikke selv kan stå. Luk biksen og smut ned og få kontanthjælp på kommunen – ligesom alle de andre tabere.* 
 
@@ -134,26 +134,26 @@ Cihan holder en lille pause, inden han præsenterer sin løsning. Han har nemlig
 – Nu var det ikke lige datteren, vi havde i tankerne, men Akmet. Han vil være god for dig.  
 Cihan synes selv, at han lyder fattet og rolig. At det er et meget lille offer for at sikre familien. Naturligvis ville Cihan gifte sig med den tolvårige, men det lå ikke i kortene. Desuden har Zehra opført sig som en vildkat de seneste år – det er på tide, at hun bliver tæmmet.
 
-– Glem det, råber Zehra rasende. Det kan ikke være mit problem, at du er så grim og dum, at ingen vil have dig, Desuden skal man ikke kaste gode penge efter dårlige. Jeg kunne måske overveje det, hvis du ville investere pengene i modernisering, men det vil du vel ikke?
+– Glem det, råber Zehra rasende. Det kan ikke være mit problem, at du er så grim og dum, at ingen vil have dig. Desuden skal man ikke kaste gode penge efter dårlige. Jeg kunne måske overveje det, hvis du ville investere pengene i modernisering, men det vil du vel ikke?
 
-– Nej selvfølgelig ikke. Fars strategi er den rigtige. Respekt og loyalitet.  
+– Nej, selvfølgelig ikke. Fars strategi er den rigtige. Respekt og loyalitet.  
 Cihans stemme er helt rolig. Han kender sin søsters temperament, men hun skal nok makke ret, han er jo overhoved nu, så det er ham, der bestemmer. Ifølge troen og loven har hun slet ikke noget at skulle have sagt, så hun burde tie, men det er en dyd, som Akmet må lære hende.
 
-Miras ansigtsudtryk er af foragt og forargelse. Hun overvejer tydeligvis at afbryde, men det ville Cihan ikke bryde sig om. Mira kender sin plads, underkuet af mænd hele sit liv, sin far, sine brødre og nu Cihan. Ilhan var i den eneste, som behandlede hende med respekt.
+Miras ansigtsudtryk er af foragt og forargelse. Hun overvejer tydeligvis at afbryde, men det ville Cihan ikke bryde sig om. Mira kender sin plads, underkuet af mænd hele sit liv, sin far, sine brødre og nu Cihan. Ilhan var den eneste, som behandlede hende med respekt.
 
 Ozan prøver at lege diplomat med prøv nu lige–, men bliver afbrudt af sin lillesøster:
 
-– Hah \- jeg kan garantere dig for, at Akmet slet ikke vil have mig. Jeg har ikke gået med tørklæde siden 1.g og spiser flittigt bacon fra kantinen. Zehra lyder ikke længere rasende, men ondskabsfuld sarkastisk. Cihan bevarer dog fatningen:
+– Hah … jeg kan garantere dig for, at Akmet slet ikke vil have mig. Jeg har ikke gået med tørklæde siden 1.g og spiser flittigt bacon fra kantinen. Zehra lyder ikke længere rasende, men ondskabsfuldt sarkastisk. Cihan bevarer dog fatningen:
 
 – Ja, dit uacceptable vilde liv er slut nu. Akmet ved udmærket godt, hvad han går ind til.
 
 – Så ved han måske også, at jeg ikke er jomfru?
 
-Zehra holder en kort pause inden, hun kaster atombomben.
+Zehra holder en kort pause, inden hun kaster atombomben.
 
 – At jeg har været gravid og er steril, da udskrabningen gik galt.
 
-Det sortner for Cihans øjne. Alle hans store planer er med ét gået i vasken. Zehra har vist sit sande jeg – vist sig som fjende af familien. Han har godt nok lagt mærke til, hvordan hun har leet og visket med Ozan i krogene. Han ser mor Mira dybt i øjnene, og forræderiet udfolder sig. Hun vidste det godt. Var far også med i sammensværgelsen? Cihan mister nu endelig besindelsen og griber ud efter den nærmeste køkkenkniv:
+Det sortner for Cihans øjne. Alle hans store planer er med ét gået i vasken. Zehra har vist sit sande jeg – vist sig som fjende af familien. Han har godt nok lagt mærke til, hvordan hun har leet og hvisket med Ozan i krogene. Han ser mor Mira dybt i øjnene, og forræderiet udfolder sig. Hun vidste det godt. Var far også med i sammensværgelsen? Cihan mister nu endelig besindelsen og griber ud efter den nærmeste køkkenkniv:
 
 – Din…, din forræder, din lille beskidte hore.
 
@@ -326,7 +326,7 @@ Så nej — jeg kunne ikke have stoppet Cihans hånd.
    Men jeg kunne — og kan — bære familien videre.  
       Det er min byrde, min styrke, min sandhed.
 
-### 2039\.
+## 2039\.
 
 \~\~\~ Koret \~\~\~  
 Maskiner uden hvile knokle, menneskets hænder tomme.  
@@ -536,7 +536,7 @@ men båret med lovsang for nødvendigheden.
 \~\~\~ Korleder \~\~\~  
 Men hør – en hvisken ved bordet, en hemmelig latter.  
 Den ene dreng smager sødt som moden frugt,  
-mens den anden trevlet, sej og bitter.
+mens den anden er trevlet, sej og bitter.
 
 \~\~\~ Koret \~\~\~  
 Hvilket barn var hvilket?  
@@ -575,13 +575,15 @@ Hankønnets drømme blot tomme skygger.
 De fejlslagne idealer, de perfide idéer   
 – vi gør dem til føde. Vi æder dem op.
 
-METADATA
+## METADATA
 
 Titel: 2049; de veganske hakkedrenge
 
 Forfatter: Allan Hansen
 
 Udgivet: 2025
+
+Korrektur: 2026
 
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
