@@ -2,7 +2,7 @@
 
 ## 1\.
 
-Ude i skoven ligger en restaurant. Den er hverken populær eller særlig fin, men servietterne er af stof, og der er betjening ved bordene. Om sommeren, kommer der pænt med gæster, og med supplerende dørsalg af is samt sodavand, er der måske en smule profit at hente. Specielt hvis man har lidt sorte penge liggende i kontanter, som man ønsker at få vasket hvide. Med dårlig isolering og få gæster, er vinteren ren tilsætning, hvorfor der kun er åbent i ganske få weekender. Huslejen er dog gratis, da godset også ejer skoven. Godsejeren har ansøgt om tilladelse til at udleje stedet som festlokale, men har fået gentagne afslag fra Skov- og Naturstyrelsen, der helst ser etablissementet lukket og revet ned. Det ville være sket for længst, hvis ikke for ejerens oldefar, der byggede det i 1890 med en helt særlig dispensation. Eller rettere: en vennetjeneste, som siden er blevet til en hævdvunden ret.
+Ude i skoven ligger en restaurant. Den er hverken populær eller særlig fin, men servietterne er af stof, og der er betjening ved bordene. Om sommeren kommer der pænt med gæster, og med supplerende dørsalg af is samt sodavand, er der måske en smule profit at hente. Specielt hvis man har lidt sorte penge liggende i kontanter, som man ønsker at få vasket hvide. Med dårlig isolering og få gæster er vinteren ren tilsætning, hvorfor der kun er åbent i ganske få weekender. Huslejen er dog gratis, da godset også ejer skoven. Godsejeren har ansøgt om tilladelse til at udleje stedet som festlokale, men har fået gentagne afslag fra Skov- og Naturstyrelsen, der helst ser etablissementet lukket og revet ned. Det ville være sket for længst, hvis ikke for ejerens oldefar, der byggede det i 1890 med en helt særlig dispensation. Eller rettere: en vennetjeneste, som siden er blevet til en hævdvunden ret.
 
 En anden fornuftig forretningsmand ville nok have kastet håndklædet i ringen for længst. Men ligesom sine forfædre, holder godsejeren stædigt fast i traditionerne og nægter at lukke restauranten. Det er jo oldefars træer, som godsejeren fælder og tjener sin levevej på. For hvert fældet træ, bliver der plantet et nyt – til gavn og glæde for fremtidige generationer. Kong Christian den fjerde udskrev selv dekretet i 1646, og selvom det ikke er gældende i dag, har familien altid efterlevet essensen. Faktisk er godsejeren lidt af en royalist, omend han kun er indirekte i familie med kongehuset. Fine officielle titler og ordner mangler desværre også, men familiens efternavn klinger ægte hos mange af de indflydelsesrige familier i Danmark. Navnet kan åbne en del muligheder. Det kræver blot, at man spørger pænt, opfører sig ordentligt inden for normen og ikke er bange for at praktisere lidt kammerateri.
 
@@ -12,7 +12,7 @@ For små ti år siden, er det ved at gå helt galt, idet efterårsstormen er sæ
 
 Selvom finanskrisen raser på sit højeste, er det blevet sommer. Vejret er herligt, og, alt taget i betragtning, klarer restauranten sig forbløffende godt. Godsejeren er i særdeles godt humør, da han har fået solgt sine aktier i tide og har købt dem tilbage – plus lidt mere – til røverpris. Hvis alt går som han tror, tegner de kommende år sig gode. Umiddelbart ånder alt fred og idyl. Det vil snart ændre sig, da en udspekuleret hjerne har udtænkt og forberedt et bizart mord.
 
-Udenfor restauranten, hænger menukortet fra forrige år til offentligt skue i et glasbur. Solen har gulnet papiret, og man burde egentlig skifte det ud, da en af gæsterne har påpeget et par pudsige stavefejl. Den nogenlunde franske bouillabaisse med hvilling står som tvillingesuppe, og tigerrejerne i den italienske pastaret er blevet til negerrejer. Svagt pinligt, men ikke en hastesag. Desuden er der vist kommet snavs i hængelåsen, da nøglen ikke passer. Affæren står i glemmebogen dagen efter, men bliver husket igen tre uger senere, hvor liget af en 17-årig dreng bliver fundet i skoven.
+Udenfor restauranten hænger menukortet fra forrige år til offentligt skue i et glasbur. Solen har gulnet papiret, og man burde egentlig skifte det ud, da en af gæsterne har påpeget et par pudsige stavefejl. Den nogenlunde franske bouillabaisse med hvilling står som tvillingesuppe, og tigerrejerne i den italienske pastaret er blevet til negerrejer. Svagt pinligt, men ikke en hastesag. Desuden er der vist kommet snavs i hængelåsen, da nøglen ikke passer. Affæren står i glemmebogen dagen efter, men bliver husket igen tre uger senere, hvor liget af en 17-årig dreng bliver fundet i skoven.
 
 ## 2\.
 
@@ -34,7 +34,7 @@ Efter folkeskolen, fortsatte Sophie i tiende klasse, mens broren kom på gymnasi
 
 Keith forventede og håbede, at den obligatoriske engelskundervisning ville være noget i stil med folkeskolen, men fik sig en bitter overraskelse, idet han ikke havde andet end konflikter med engelsklæreren, som mente, at det var en god start, at Keith kendte til sproget – nu skulle han bare lære at tale og stave korrekt. Oxfordengelsk var, ifølge læreren, åbenbart den eneste korrekte dialekt, og Keiths “beskidte” sprogbrug virkede tilsyneladende som en personlig fornærmelse. Keith brød sig heller ikke om læreren.
 
-Udover engelskundervisningen, nød Keith at gå i gymnasiet. Han fik mange nye kammerater, herunder Christian, godsejerens yngste søn. De var bedste venner i starten, men venskabet kunne ikke overleve deres forskellighed. Keith begyndte at holde sig på afstand, angiveligt fordi Christian var en dårlig indflydelse og ikke delte Keiths ambitioner om at komme på universitetet eller gøre karriere. Christian fokuserede på livets glæder og nærmest lallede sig igennem for at få tiden til at gå – det gode efternavn var nok til at sikre hans fremtid uanset karakterer.
+Udover engelskundervisningen nød Keith at gå i gymnasiet. Han fik mange nye kammerater, herunder Christian, godsejerens yngste søn. De var bedste venner i starten, men venskabet kunne ikke overleve deres forskellighed. Keith begyndte at holde sig på afstand, angiveligt fordi Christian var en dårlig indflydelse og ikke delte Keiths ambitioner om at komme på universitetet eller gøre karriere. Christian fokuserede på livets glæder og nærmest lallede sig igennem for at få tiden til at gå – det gode efternavn var nok til at sikre hans fremtid uanset karakterer.
 
 Morgenen før sin 18-års fødselsdag, vågnede Keith til en herlig juni sommerdag. Med alle eksamener veloverstået, glædede han sig allerede til 3g. Hans forældede Nokia mobil kørte på sidste vers, og han ønskede sig brændende en af disse nye smartphones. Laptoppen kunne også trænge til en udskiftning. Heldigvis ville han snart få SU, men den ville ikke række langt. Som ansvarlig voksen, burde han også give nogle af pengene til sin mor, som betaling for at bo hjemme. Kørekortet kunne vente et par år.
 
@@ -50,7 +50,7 @@ Forhenværende drabschef Ibsen bliver fløjet ind fra Bornholm med helikopter. I
 
 Hendes efterfølger har slet ikke formået at skabe sig samme omdømme. Der var ikke gået mange uger efter udnævnelsen, før denne annoncerede sin graviditet. Herefter et år på barsel, og nu er hun passende gået ned med stress. Politichefen må være desperat, siden han har hidkaldt Ibsen – og endda i helikopter. *Det er også alle de ændringer, som regeringen hovedløst trækker ned over politiet. Man skulle ellers tro, at det ville gavne ordensmagten med en tidligere betjent som konservativ minister, men selvfølgelig kunne det have været endnu værre.* Ibsen er skeptisk, men må sande, at hendes prioriteter har ændret sig efter, hun trak sig tilbage. Politik og økonomi er stille og roligt erstattet af sygdom og ensomhed.
 
-Efterfølgeren har, mere eller mindre frivilligt, annonceret sin afgang, og en permanent, ny drabschef kan ikke umiddelbart findes. De unge talenter mangler erfaring, og de erfarne talent. Det kribler i Ibsens fingre for at komme i gang igen. Hun kan tydeligt mærke en hel sværm sommerfugle i maven. *Den er vist helt gal med dig, men alligevel.* Gigtsmerterne er pludselig ikke lige så generende, og sorgen over hendes elskede demente ægtemand på plejehjemmet nærmest glemt. Hendes hjerne arbejder på højtryk – skarp som altid.
+Efterfølgeren har, mere eller mindre frivilligt, annonceret sin afgang, og en permanent, ny drabschef kan ikke umiddelbart findes. De unge talenter mangler erfaring, og de erfarne talent. Det kribler i Ibsens fingre for at komme i gang igen. Hun kan tydeligt mærke en hel sværm sommerfugle i maven. *Den er vist helt gal med dig, men alligevel.* Gigtsmerterne er pludselig ikke lige så generende, og sorgen over hendes elskede, demente ægtemand på plejehjemmet nærmest glemt. Hendes hjerne arbejder på højtryk – skarp som altid.
 
 Fra underverdenen hvisker en dæmon noget om skyld og skam. *Hvad laver du i denne helikopter? Du kan da ikke bare efterlade din ægtefælle på plejehjemmet.* Ibsen fokuserer og genner dæmonen væk. Den demente har ikke genkendt hende i månedsvis. Han burde få fred nu, men det dygtige plejepersonale holder ham stædigt i live. *Vær ærlig med dig selv: du flygter fra problemet\!* Ibsen formår at undertrykke den første tåre, men ikke den anden. *Her har du chancen for at gøre en forskel. På plejehjemmet er du bare til pynt.*
 
@@ -76,7 +76,7 @@ Schou må gå den sidste kilometer mellem bilen og gerningsstedet til fods. Terr
 
 Svedende og beskidt, når Schou endelig frem. Ibsen går ham i møde og hilser kort: “Schou”.
 
-Schou overvejer at gengælde formelt med kriminalkommissær, men husker, at Ibsen tidligere har insisteret på en lettere uformel tone. Han tager chancen og hilser tilbage med: “Ibsen”. 
+Schou overvejer at gengælde formelt med “kriminalkommissær”, men husker, at Ibsen tidligere har insisteret på en lettere uformel tone. Han tager derfor chancen og hilser tilbage med: “Ibsen”. 
 
 Ibsen kigger ham op og ned uden at sige noget.
 
@@ -86,7 +86,7 @@ Ibsen fisker sin lyserøde telefon op af tasken og ringer til politichefen. Hun 
 
 Ibsen lader til at have ændret karakter. Væk er den maskuline ledertype, der altid sætter sig ved bordenden. Den nye Ibsen virker som den stille type, der helst observerer og lader andre snakke. Schou er forvirret, men forventer, at hun nok skal sætte sig i førersædet, når det virkelig gælder. Nu lader hun Schou føre ordet, mens parret i fællesskab undersøger gerningsstedet.
 
-Da meteorologerne har lovet regn, er liget pakket ind i et telt, og kriminalisterne i fuld sving derinde. Retsmedicineren, Fritz, er oprindeligt fra Kiel, men har været udlånt til Danmark det meste af sit liv. Han har altid insisteret på tyske assistenter, hvilket ikke har raffineret hans danske sprogfærdigheder. Som langt de fleste i faget, er han noget af en excentrisk særling. 
+Da meteorologerne har lovet regn, er liget pakket ind i et telt, og kriminalisterne i fuld sving derinde. Retsmedicineren, Fritz, er oprindeligt fra Kiel, men har været udlånt til Danmark det meste af sit liv. Han har altid insisteret på tyske assistenter, hvilket ikke har raffineret hans danske sprogfærdigheder. Som langt de fleste i faget er Fritz noget af en excentrisk særling. 
 
 Ibsen har givet ham arbejdsro, end ikke hilst endnu. Hun har ikke behov for et genhør med hans dumme barnagtige rim: “Jeg noget forkert dig si’e, du sur på mig bli’e.” 
 
@@ -172,7 +172,7 @@ Ibsen er ligbleg. Tvillingesuppen alene er bare en tilfældighed. Men med negerr
 
 Ibsen sukker dybt. Schou ligner et spørgsmålstegn, men venter pænt på en forklaring.
 
-Tina forklarer: “Iberico er det kommercielle navn på en særlig indfødt race af svin fra den Iberiske halvø, altså Spanien. De kaldes også sortfodssvin og giver noget af det lækreste svinekød i verden. Racen går tilbage til stenalderen, og faktisk troede man, at den var uddød, men for nylig fandt man en flok og er begyndt at opdrætte dem til eksport.”
+Tina forklarer ivrigt: “Iberico er det kommercielle navn på en særlig indfødt race af svin fra den Iberiske halvø, altså Spanien. De kaldes også sortfodssvin og giver noget af det lækreste svinekød i verden. Racen går tilbage til stenalderen, og faktisk troede man, at den var uddød, men for nylig fandt man en flok og er begyndt at opdrætte dem til eksport.”
 
 Både Ibsen og Schou er trætte og sultne efter den strabadserende dag, men begge har pludselig mistet appetitten. Schou, som er mere til dansk mad og hygge, får pludselig kraftig kvalme og må låne et toilet for at brække sig. *Hvor pinligt – det har du ikke gjort i tyve år. Hvad må Ibsen dog tænke?* *Men det er vel positivt, at du stadig er menneske\!*
 
@@ -272,13 +272,13 @@ Schou griber den næste rapport om ofrets mobiltelefon, som er mekanisk beskadig
 
 Schou overvejer, om han ikke skulle ringe til teknikeren og bede ham få fart på. Hvad er det for noget pjat med at redde hukommelseschippen? Det er vel bare at lodde et par ledninger på et opladt batteri. *Nu skal du passe på ikke at lade magten stige dig til hovedet – den kan teknikeren nok selv regne ud.*
 
-En karakterudskrift fra gymnasiet viser en flittig og dygtig elev, som konsekvent har klaret sig flot i de fleste fag, dog ikke i engelsk. Schou ytrer et højlydt: “øh, hvad?” i forbløffelse. Ibsen kigger på rapporten og fatter tilsyneladende ikke indholdet. Schou må lige forklare den nye karakterskala. Middelmådige karakterer i 1g. Langt værre i 2g med terminskarakterer kun lige bestået. Års- og eksamenskarakter på 12 – altså maks. Ibsen noterer, at de lige skal have en forklaring fra læreren, men det er ikke lige topprioritet.
+En karakterudskrift fra gymnasiet viser en flittig og dygtig elev, som konsekvent har klaret sig flot i de fleste fag, dog ikke i engelsk. Schou ytrer et højlydt: “øh, hvad?” i forbløffelse. Ibsen kigger på rapporten og fatter tilsyneladende ikke indholdet. Schou må lige forklare den nye karakterskala. Middelmådige karakterer i 1.g. Langt værre i 2.g med terminskarakterer kun lige bestået. Års- og eksamenskarakter på 12 – altså maks. Ibsen noterer, at de lige skal have en forklaring fra læreren, men det er ikke lige topprioritet.
 
 Der er ikke flere rapporter, så Ibsen skænker sig en kop kaffe, mens en aggressiv Schou ringer til teleselskabet for at få dem til at rubbe neglene. En nervøs telefonpasser prøver at mildne ham. Hun forsikrer ham om, at rapporten helt sikkert er på vej. Teknikerne har knoklet lige siden, de mødte ind klokken ni, højeste prioritet – alt for politiet. Schou tror hende ikke, men må indse, at han ikke har noget at true med. Han smider røret på og kigger over på Ibsen, som smiler tilbage: “Jeg fandt den i mappen med spam.”
 
 Opkaldsliste fra mobilselskabet ligger klar. Ofrets sidste aktivitet er en sms til hans mor klokken 8:56, som allerede blev dokumenteret, da politiet accepterede morens anmeldelse om sønnens forsvinden. Ibsen læser op: “Har fundet arbejde. Overnatter hos Christian.”
 
-Schou finder sin notesbog frem. Aftenen før, fik han talt med den vagthavende betjent, som tog imod anmeldelsen. Schou læser op fra noterne: “Christian er søn af den lokale godsejer og gik i klasse med ofret. Drengene lavede lektier sammen i 1g, men det stoppede, da Christian blev kæreste med afdødes søster.”
+Schou finder sin notesbog frem. Aftenen før, fik han talt med den vagthavende betjent, som tog imod anmeldelsen. Schou læser op fra noterne: “Christian er søn af den lokale godsejer og gik i klasse med ofret. Drengene lavede lektier sammen i 1.g, men det stoppede, da Christian blev kæreste med afdødes søster.”
 
 Ofret har modtaget en sms 8:39 fra et nummer, som aldrig har ringet til ham før. Svar sendt seks minutter senere, og modtaget yderligere sms fra samme nummer 8:49. Det ukendte nummer er sandsynligvis et anonymt taletidskort, men Schou sørger alligevel straks for en dommerkendelse for at få yderligere oplysninger. Indholdet af beskederne er ikke gemt hos teleselskabet og må vente, indtil telefonen er åbnet.
 
@@ -314,7 +314,7 @@ Ruth fortæller, at Keith lå i sin seng og sov, da hun tog på arbejde, lidt f�
 
 Sophie siger, at hun først kom hjem med toget fra Hamborg sent på eftermiddagen. Hun kan ikke huske tidspunktet præcist, men har billetten liggende et eller andet sted. Hun roder i sin taske og fisker en yderst krøllet billet frem sammen med en kvittering fra Aarhus, hvor hun har købt frokost i ventetiden mellem togskift. Hun fortsætter med at fortælle, at hendes sabbathår er ved at være slut. Hun ville fejre sin 18-års fødselsdag med familien. Schou vurderer, at hun igen virker falsk, at hun slet ikke er ked af brorens død. Til gengæld virker det som om, hun nyder, at politiet stiller spørgsmål og lytter – elsker at være i centrum.
 
-Schou bemærker endvidere hendes nye smarte telefon med den trykfølsomme skærm. Sådan en sag ønsker han sig selv, men den står i små 8000 kroner. Hun kunne selvfølgelig have købt den på afbetaling, men det er stadig rigtig mange penge. Nu er Schou ikke modeekspert, men hendes tøj lader også til at være i den dyre ende, sikkert fra de dyre tyske butikker. Han skal til at spørge, men Ibsen kommer ham i forkøbet.
+Schou bemærker endvidere hendes nye smarte telefon med den trykfølsomme skærm. Sådan en sag ønsker han sig selv, men den står i små otte tusind kroner. Hun kunne selvfølgelig have købt den på afbetaling, men det er stadig rigtig mange penge. Nu er Schou ikke modeekspert, men hendes tøj lader også til at være i den dyre ende, sikkert fra de dyre tyske butikker. Han skal til at spørge, men Ibsen kommer ham i forkøbet.
 
 Sophie fortæller, at hun har rejst en del og taget, hvad hun kunne finde af arbejde. Hun har arbejdet de sidste to måneder som barnepige for en rig tysk familie. Jobbet fik hun via en anbefaling fra kærestens far, godsejeren.
 
@@ -368,7 +368,7 @@ Schou, derimod, føler sig nedgjort og besejret. Det var så det, ikke mere at k
 
 ## 13\.
 
-Tilbage på stationen, lærer Ibsen flere nye ord, mens hun læser den udvidede rapport om laptoppen inklusiv ofrets sociale adfærd på internettet. Schou bestilte den aftenen før – igen med højeste prioritet. Ibsen er i starten irriteret over det åbenlyse spild af penge. Dog er hun mest irriteret på sig selv, at hun ikke magtede holde sig vågen. Efter et par minutter, genkender hun den automatiske adfærd fra fordums tid. *Ibsen, husk at du er pensionist – økonomi er ikke længere dit problem. Du skal bare løse denne sag, og så er det ud af vagten, tilbage til den ensomme tilværelse på solskinsøen.*
+Tilbage på stationen lærer Ibsen flere nye ord, mens hun læser den udvidede rapport om laptoppen inklusiv ofrets sociale adfærd på internettet. Schou bestilte den aftenen før – igen med højeste prioritet. Ibsen er i starten irriteret over det åbenlyse spild af penge. Dog er hun mest irriteret på sig selv, at hun ikke magtede holde sig vågen. Efter et par minutter genkender hun den automatiske adfærd fra fordums tid. *Ibsen, husk at du er pensionist – økonomi er ikke længere dit problem. Du skal bare løse denne sag, og så er det ud af vagten, tilbage til den ensomme tilværelse på solskinsøen.*
 
 Mange af de nye ord har hun hørt i nyhederne, men aldrig vist nogen som helst interesse for. Ibsen må lige minde sig selv om, at verden ikke har stået stille bare fordi hun har. Tre år lyder ikke af meget, men verden lader til at bevæge sig i et helt andet tempo end tidligere.
 
@@ -392,13 +392,13 @@ Ibsens computer siger en lyd, der indikerer, at der er kommet endnu en e-mail. K
 
 8:43 sendt: “Ja tak. Hvornår?”
 
-8:49 modtaget: “Mød Carl ved restauranten kl. 10, han viser dig, hvor plantagen ligger. Regn med, at jobbet tager en syv-otte timer. Vi holder desuden surpriseparty for Christian i aften. Jeg vil sætte pris på din deltagelse. Vi har en seng klar til dig, hvis du vil overnatte. Medbring skiftetøj, og husk at informere dine forældre.”
+8:49 modtaget: “Mød Carl ved restauranten kl. 10, han viser dig, hvor plantagen ligger. Regn med, at jobbet tager en syv-otte timer. Vi holder desuden surpriseparty for Christian i aften. Jeg vil sætte pris på din deltagelse. Vi har en seng klar til dig, hvis du vil overnatte. Medbring skiftetøj og husk at informere dine forældre.”
 
 Det ukendte nummer spiller som forventet en vigtig rolle i efterforskningen. Hvor bliver den rapport fra teleselskabet af? Ahh, spammappen igen. Ibsen forbander den moderne teknologi, som overhovedet ikke gør livet nemmere.
 
 Det ukendte nummer har, som forventet, anvendt et anonymt taletidskort. Serienummeret tilhører et parti, der blev solgt i butikker i Nordjylland tilbage i april, hvor det også har været aktiveret et par minutter. Signalstyrken på sendemasterne indikerer, at lokationen var parkeringspladsen ved restauranten. Der er dog en usikkerhed på flere hundrede meter.
 
-På gerningsdagen, blev telefonen brugt i nærheden af ofrets lejlighed.
+På gerningsdagen blev telefonen brugt i nærheden af ofrets lejlighed.
 
 Obduktionsrapporten tikker endelig ind. Mens Ibsen læser, forestiller hun sig en veltilfreds Fritz, der fik ret i alle antagelser. Olie og mikroskopiske metalsplinter i snitsårene stemmer overens med en billig hobbykniv, som kan købes alle steder. I albueknoglerne er der fundet rester af sort maling, samme type som på skæret af et ørnenæb af mærket Fiskars. Det dødbringende stik i skulderen til hjertet er fyldt med større metalfragmenter. Sammen med den flossede kant, kunne det tyde på en gevindstang, som er blevet spidset med en fil eller vinkelsliber.
 
@@ -420,7 +420,7 @@ Arbejdsdagen er langt fra slut, men begge undlader at diskutere sagen yderligere
 
 ## 15\.
 
-Schou regner med at køre tilbage til stationen, men Ibsen insisterer på, at de fortsætter arbejdet på hotellet. Hun har fået tildelt en større luksussuite med to værelser og inviterer Schou indenfor. Med et selvironisk tonefald ytrer hun: “Så er der ikke så langt, hvis jeg skulle falde i søvn igen.” Hun fremtryller en flaske rødvin og et par passende glas. Med en mere seriøs stemme fortsætter hun: “Dommerkontoret har lukket nu, og de bryder sig ikke om at blive vækket, med mindre det er et nødstilfælde. Lad os sammenligne noter og planlægge, hvordan vi bedst fortsætter efterforskningen.”
+Schou regner med at køre tilbage til stationen, men Ibsen insisterer på, at de fortsætter arbejdet på hotellet. Hun har fået tildelt en større luksussuite med to værelser og inviterer Schou indenfor. Med et selvironisk tonefald ytrer hun: “Så er der ikke så langt, hvis jeg skulle falde i søvn igen.” Hun fremtryller en flaske rødvin og et par passende glas. Med en mere seriøs stemme fortsætter hun: “Dommerkontoret har lukket nu, og de bryder sig ikke om at blive vækket, medmindre det er et nødstilfælde. Lad os sammenligne noter og planlægge, hvordan vi bedst fortsætter efterforskningen.”
 
 Selvmord er udelukket – teknisk umuligt. Det samme gælder den fængslede far i USA.
 
@@ -456,17 +456,17 @@ Gennem Christian kender hun menuen ud og ind – de har sikkert spist der flere 
 
 Når hendes job som barnepige slutter, tager hun ikke direkte hjem, men vil i stedet bruge en lang dag på at shoppe. Hun vil have os til at tro, at hun overnatter på et hotel og tager toget fra Hamborg morgenen efter ved ti-tiden. Dermed kommer hun hjem omkring klokken 18\.
 
-I virkeligheden bliver shoppingturen noget kortere. Om formiddagen, møder hun ind på hotellet med en stor kuffert og betaler ekstra for at tjekke ind tidligt. Herefter skynder hun sig at købe noget dyrt tøj og tager toget til Danmark. Hun ankommer sent aften, hvor hun henter sin cykel og får et par timers søvn i soveposen, som hun har medbragt fra Hamborg. Så snart det bliver lyst, står hun op og henter en taske med mordvåben og remedier, som hun har gemt et eller andet sted. Hun fragter tasken til skoven og gør klar til mord. 
+I virkeligheden bliver shoppingturen noget kortere. Om formiddagen møder hun ind på hotellet med en stor kuffert og betaler ekstra for at tjekke ind tidligt. Herefter skynder hun sig at købe noget dyrt tøj og tager toget til Danmark. Hun ankommer sent aften, hvor hun henter sin cykel og får et par timers søvn i soveposen, som hun har medbragt fra Hamborg. Så snart det bliver lyst, står hun op og henter en taske med mordvåben og remedier, som hun har gemt et eller andet sted. Hun fragter tasken til skoven og gør klar til mord. 
 
 Gerningsstedet har Sophie valgt for længst. Hun fjerner de visne blade i skovbunden og lægger et termotæppe på jorden. Hun lægger bladene tilbage og anbringer et eller andet spændende objekt på midten. Et eller andet som ikke hører hjemme i en skov.
 
-Herefter cykler hun hjem og venter udenfor på, at moren tager på arbejde. Sophie ved rimelig præcis hvornår Ruth tager af sted, da de har snakket sammen et par dage før. Lydløst, låser Sophie op og sniger sig ind på sit værelse, hvor hun hurtigt gør sig klar. Hun ifører sig natkjole for at lade som om, hun kom hjem tidligere. Herefter lister hun ind på brorens værelse, hvor hun bytter hans telefon, som sikkert sidder i opladeren, ud med en defekt der ligner. Brorens telefon gemmer hun, men sikrer sig først, at han ikke har ændret pinkoden, som hun allerede har afluret. Hvis han har, må hun myrde ham en anden dag. Hun sætter mobilen på lydløs.
+Herefter cykler hun hjem og venter udenfor på, at moren tager på arbejde. Sophie ved rimelig præcis hvornår Ruth tager af sted, da de har snakket sammen et par dage før. Lydløst låser Sophie op og sniger sig ind på sit værelse, hvor hun hurtigt gør sig klar. Hun ifører sig natkjole for at lade som om, hun kom hjem tidligere. Herefter lister hun ind på brorens værelse, hvor hun bytter hans telefon, som sikkert sidder i opladeren, ud med en defekt der ligner. Brorens telefon gemmer hun, men sikrer sig først, at han ikke har ændret pinkoden, som hun allerede har afluret. Hvis han har, må hun myrde ham en anden dag. Hun sætter mobilen på lydløs.
 
 Sophie går nu i køkkenet hvor hun begynder at larme, så Keith vågner. Han undrer sig over, at hun er kommet så tidligt, men har ingen grund til at fatte mistanke. Mens Keith prøver at falde i søvn igen, får Sophie sin nye telefon til at ringe. Det er nemt nok ved at bruge funktionen til at skifte ringetone. Hun lader som om, hun snakker med Christian.
 
-Efter den simulerede samtale, binder Sophie sin bror en historie på ærmet. Det kunne være, at hun og Christian havde elsket hele natten i skoven, og at Christian var faldet og havde brækket foden på vej hjem. For at undgå en pinlig forklaring over for den konservative godsejer, har Christian brug for hjælp, så han kan lade som om, han kom til skade et andet sted. Sophie kan eventuelt tilbyde Keith den nye smarte telefon for at hjælpe. Det kan Keith ikke sige nej til. Specielt ikke, hvis han har opdaget, at sin egen ikke virker mere.
+Efter den simulerede samtale, binder Sophie sin bror en historie på ærmet. Det kunne være, at hun og Christian havde elsket hele natten i skoven, og at Christian var faldet og havde brækket foden på vej hjem. For at undgå en pinlig forklaring over for den konservative godsejer har Christian brug for hjælp, så han kan lade som om, han kom til skade et andet sted. Sophie kan eventuelt tilbyde Keith den nye smarte telefon for at hjælpe. Det kan Keith ikke sige nej til. Specielt ikke, hvis han har opdaget, at sin egen ikke virker mere.
 
-De to søskende cykler til skoven. Sophie ved hvor Christian er faldet og viser vej. Ved gerningsstedet, peger hun på objektet i skovbunden, som hun placerede forinden. Hun spørger forundret, hvad det mon kan være, og Keith sætter sig på hug for at se nærmere. 
+De to søskende cykler til skoven. Sophie ved hvor Christian er faldet og viser vej. Ved gerningsstedet peger hun på objektet i skovbunden, som hun placerede forinden. Hun spørger forundret, hvad det mon kan være, og Keith sætter sig på hug for at se nærmere. 
 
 Sophie myrder nu sin bror. Efter hun har spiddet ham, lader hun våbnet sidde i for at begrænse blødningen. Hun dækker straks liget til med yderligere et termotæppe. Hun aktiverer nu adskillige varmeposer, dem man vrider, og så bliver de varme via en kemisk reaktion. Poserne skubber hun ind under tæppet. Varmen holder liget varmt, hvilket ændrer på vurderingen af dødstidspunktet.
 
@@ -524,7 +524,7 @@ Ibsen klukker: “Er det mig, der er blevet gammel, eller har de unges kurtiseri
 
 Schou klør sig i nakken: “Ja, det ligner et rent professionelt forhold, hvis ikke afpresning.”
 
-Christians rapport viser en noget anden historie end, hvad Ruth og Sophie har fortalt. Hvis Keith og Christian blev uvenner, så er det pudsigt, at de har talt sammen og sendt utallige sms’er i løbet af den sidste sommer – endda flere måneder ind i 2g. Efter nytår gik der længere og længere mellem kontakterne. Ingen kommunikation de sidste to måneder.
+Christians rapport viser en noget anden historie end, hvad Ruth og Sophie har fortalt. Hvis Keith og Christian blev uvenner, så er det pudsigt, at de har talt sammen og sendt utallige sms’er i løbet af den sidste sommer – endda flere måneder ind i 2.g. Efter nytår gik der længere og længere mellem kontakterne. Ingen kommunikation de sidste to måneder.
 
 Knud har, som forventet, aldrig ringet til Keith, men adskillige gange til Sophie. Han har også overført diverse pengebeløb til hende. Sammenlagt små 20.000 fordelt over seks gange. Den sidste lyder på 2.000 kr lige før hun tog til Tyskland. Sikkert togbilletten tur/retur og lidt ekstra.
 
@@ -592,11 +592,11 @@ Efter at drengene fik lidt alkohol i blodet, så Knud glimtet i deres øjne og d
 
 Som forventet, afviste Christian alle sådanne lyster, og Knud regnede da heller ikke med at høre mere. Stor var forbløffelsen, da Christian, mere end et halvt år senere, kom hjem og fortalte, at han, trods stor forsigtighed, var blevet afsløret i en mindre indiskretion. Sophie havde pjækket og set dem ryge hash med mere. Keith havde forsikret Christian om, at Sophie aldrig ville sladre, men Christian var usikker og fandt på idéen med at ansætte hende. Knud var utrolig stolt af sin søn på det tidspunkt.
 
-Officielt, var Christian og Keith blevet uvenner, grundet Sophie. Det var derfor helt naturligt, at de ikke lavede lektier sammen i 2g og holdt sig på afstand i offentligheden. Hvad de lavede i det skjulte, ville Knud ikke vide.
+Officielt, var Christian og Keith blevet uvenner, grundet Sophie. Det var derfor helt naturligt, at de ikke lavede lektier sammen i 2.g og holdt sig på afstand i offentligheden. Hvad de lavede i det skjulte, ville Knud ikke vide.
 
 Ved juletid kom Christian grædende hjem. Han fortalte, at det ikke bare var lyst mellem ham og Keith. Rigtige følelser havde udviklet sig, og Keith var træt af at holde forholdet skjult. Knud bad Christian overtale Keith til at holde ud lidt endnu. Vent et par år, de politiske vinde blæser i én klar retning. Når Danmark næste gang får en rød regering, vil samfundet ændre sig i en langt mere tolerant retning.
 
-Ifølge Christian, havde Keith haft brug for lidt betænkningstid, men efter påsken gav han Christian et ultimatum: sæt en dato, gerne efter 3g. Keith var villig til at flytte til København eller et andet mere tolerant sted. Knud prøver forgæves at holde tårerne tilbage.
+Ifølge Christian, havde Keith haft brug for lidt betænkningstid, men efter påsken gav han Christian et ultimatum: sæt en dato, gerne efter 3.g. Keith var villig til at flytte til København eller et andet mere tolerant sted. Knud prøver forgæves at holde tårerne tilbage.
 
 Christian afviste, hvilket godsejeren først var lykkelig over. Christian havde sat godset højere end sig selv – et klart tegn på, at han var den rette til at overtage efter sin far. Godsejeren blev bekræftet i sit valg af efterfølger.
 
@@ -700,7 +700,7 @@ Det var ikke svært at lokalisere byggemarkedet, hvor ørnenæb og kæde er ansk
 
 Schou og Ibsen har snakket teori timevis. Hvis Margrethe har gemt de dødbringende piller tidligere, så har hun fortalt Christian, hvor de lå, da han ringede. At Christian ringede, og ikke omvendt, understøtter kraftigt Margrethes historie. Specielt, da Knud har fortalt, at de to ikke var særligt nære. Faktisk undrer Knud sig også over et andet opkald aftenen før Keiths død.
 
-Frederik ringede godsejeren om aftenen – kun ét ring. Knud ringede straks tilbage, men det var Margrethe, som tog telefonen. Hun lød temmelig påvirket og fortalte, at Frederik havde sparket til sofabordet, og at han jamrede i baggrunden. Knud kunne dog ikke høre denne jamren, men Frederik overtog telefonen kort tid efter. Knud blev overrasket, da de to aldrig havde fortalt, at de sås socialt i København. Men, de er søskende, så selvfølgelig ser de hinanden. Rapporten fra teleselskaberne er delvis enig. De har set en del til hinanden de sidste to måneder, men ikke tidligere.
+Frederik ringede godsejeren om aftenen – kun ét ring. Knud ringede straks tilbage, men det var Margrethe, som tog telefonen. Hun lød temmelig påvirket og fortalte, at Frederik havde sparket til sofabordet, og at han jamrede i baggrunden. Knud kunne dog ikke høre denne jamren, men Frederik overtog telefonen kort tid efter. Knud blev overrasket, da de to aldrig havde fortalt, at de sås socialt i København. Men de er søskende, så selvfølgelig ser de hinanden. Rapporten fra teleselskaberne er delvis enig. De har set en del til hinanden de sidste to måneder, men ikke tidligere.
 
 Umiddelbart burde telefonopkaldet til Knud udelukke både Frederik og Margrethe, men Ibsen er stærk i sin mavefornemmelse. Hvis Margrethe har hjulpet sin lillebror i graven, så må Frederik have dræbt Keith. De to søskende må derfor have indgået et arrangement og udarbejdet et alibi, som bliver meget svært at pille fra hinanden. De tekniske spor er stærke, men idet Frederik studerer IT og generelt har gode karakterer, er det ikke utænkeligt, at han har fundet nogle smuthuller.
 
@@ -734,7 +734,7 @@ Frederik virker arrogant og modvillig. Hvad pokker bilder Schou sig ind? Frederi
 
 Frederik husker at Margrethe var hønefuld, da han ankom. Han havde mest af alt lyst til at gå igen, men hun var ved godt humør og bad ham blive. Hun viste ham et par joints, som de skulle ryge senere, og det var lige hvad Frederik havde brug for. Hans eksamener var godt nok alle bestået, men slet ikke med de ønskede karakterer.
 
-Margrethe brændte maden på, men mente ikke at det betød noget – bare en lille lugt. Frederik var ved at kaste op og bestilte nogle pizzaer fra et pizzeria, han havde hørt omtalt til skyerne. Margrethe plejer at handle hos den lokale tyrker, men de bruger den samme tomatsauce som alle andre tyrkerpizzarier i Danmark, og den mener Frederik smager ganske  rædsomt. Margrethe ville absolut ruinere pizzaen med ananas, så hun fik en standard Hawaii, mens Frederik bestilte en pizza med champions og bacon. Den smagte okay, dog ikke så god som forventet, anbefalingerne taget i betragtning.
+Margrethe brændte maden på, men mente ikke at det betød noget – bare en lille lugt. Frederik var ved at kaste op og bestilte nogle pizzaer fra et pizzeria, han havde hørt omtalt til skyerne. Margrethe plejer at handle hos den lokale tyrker, men de bruger den samme tomatsauce som alle andre tyrkerpizzarier i Danmark, og den mener Frederik smager ganske rædsomt. Margrethe ville absolut ruinere pizzaen med ananas, så hun fik en standard Hawaii, mens Frederik bestilte en pizza med champions og bacon. Den smagte okay, dog ikke så god som forventet, anbefalingerne taget i betragtning.
 
 Frederik drak hele rødvinen, mens de to joints fik ben at gå på. Margrethe crashede på sofaen, så han bar hende i seng. Dog fik de ringet til faren forinden, og Frederik husker at banke foden ind i metalbenet på sofabordet. Modbydelig skarp kant.
 
@@ -746,7 +746,7 @@ Margrethe vækkede ham om morgenen og var venlig at have medbragt nogle velsigne
 
 Med Ibsen i øresneglen, skifter Schou mellem at afhøre Margrethe og Frederik. Tiden er knap. Hvis der ikke kan rejses tiltale inden 24 timer, så er der ikke nogen sag. Ikke medmindre der dukker fysiske beviser op senere. En anden kriminalkommissær ville nok have kørt parallelle afhøringer, men Ibsen vil være med til det hele, så hun ikke misser en vigtig detalje, der potentielt kunne vinde sagen.
 
-Da det er utroligt svært at genfortælle en opdigtet historie, beder Schou de to søskende gentage deres historier et par gange til. Det er en gammel forhørsteknik perfektioneret af DDR. Hvis historien er opdigtet, vil genfortællingen være identisk fra gang til gang. Normale mennesker laver småjusteringer hver gang, de erindrer en sand begivenhed flere gange. Når historien er opdigtet, er den gennemtænkt og øvet utallige gange, og så rykker der sig sjældent mere end et komma.
+Da det er utroligt svært at genfortælle en opdigtet historie, beder Schou de to søskende gentage deres historier et par gange til. Det er en gammel forhørsteknik perfektioneret af DDR. Hvis historien er opdigtet, vil genfortællingen være identisk fra gang til gang. Normale mennesker laver småjusteringer hver gang, de erindrer en sand begivenhed. Når historien er opdigtet, er den gennemtænkt og øvet utallige gange, og så rykker der sig sjældent mere end et komma.
 
 Margrethe virker irriteret; hun har jo allerede fortalt det hele. Alligevel varierer historierne tilstrækkeligt meget til, at Schou begynder at tro hende. Pizzaen ændrede sig fra en Milano til en Torino, og hun spildte forresten tomatsauce på sin islandske sweater, hvilket hun blev ked af. Frederik syntes, det var en overreaktion, sweateren var jo tudsegammel og slidt, men Margrethe kunne nu godt lide den. Hun har den forresten stadig, da hun ikke nænner at smide den ud. Det samme gælder mormors gryde. Der var også noget med at Frederik ikke kunne finde proptrækkeren. Margrethe spurgte, om han var blind; flasken havde jo skruelåg.
 
@@ -838,11 +838,11 @@ Christian var gået tidligt i seng for at fundere over livet. Solen gik ned, mø
 
 Christian havde hverken snakket med Margrethe eller Frederik siden den skæbnesvangre Skærtorsdag, hvor godsejeren annoncerede sin efterfølger. Ikke fordi han havde haft lange, dybe samtaler med sine søskende før, men de plejede, trods alt, at hilse godmorgen og lignende.
 
-Faren havde naturligvis valgt rigtigt. Christian var den eneste, der interesserede sig for skoven og ønskede at bevare traditionerne. Hvis det var en test, havde Christian bestået med bravur. I stedet for at ønske tillykke, blev Keith underlig. Han fortalte, at han var træt af at gemme sig og undskylde for, hvem han var. Træt af at spille skuespil for omverdenen, specielt overfor sin mor, som ofte syntes, at han skulle finde sig en kæreste ligesom søsteren. Christian mente ikke, at han havde været urimelig. Hvis Keith ville tage sin mor i ed, så var det i orden.
+Faren havde naturligvis valgt rigtigt. Christian var den eneste, der interesserede sig for skoven og ønskede at bevare traditionerne. Hvis det var en test, havde Christian bestået med bravur. I stedet for at ønske tillykke, blev Keith underlig. Han fortalte, at han var træt af at gemme sig og undskylde for, hvem han var. Træt af at spille skuespil for omverdenen, specielt over for sin mor, som ofte syntes, at han skulle finde sig en kæreste ligesom søsteren. Christian mente ikke, at han havde været urimelig. Hvis Keith ville tage sin mor i ed, så var det i orden.
 
 Det var selvfølgelig ikke nok. Keith ville ikke bare ud af skabet, men også sprænge det i luften med et kæmpe knald. Christian prøvede at forklare sin fars pointe med de politiske vinde, den næste røde regering, og at samfundet ville ændre sig. Keith var ikke uenig, men pointerede, at godset altså ligger i Nordjylland. Han magtede ikke at vente en 10-20 år.
 
-Hvad havde Christian egentlig tænkt sig skulle ske efter 3g? Skulle Keith affinde sig med en andenrangsuddannelse på Aalborg universitet, så han kunne pendle hjem? Eller havde Christian tænkt sig, at Keith skulle arbejde på godset? Christian måtte erkende, at han slet ikke havde tænkt så langt – det føltes uendeligt langt ud i fremtiden.
+Hvad havde Christian egentlig tænkt sig skulle ske efter 3.g? Skulle Keith affinde sig med en andenrangsuddannelse på Aalborg universitet, så han kunne pendle hjem? Eller havde Christian tænkt sig, at Keith skulle arbejde på godset? Christian måtte erkende, at han slet ikke havde tænkt så langt – det føltes uendeligt langt ud i fremtiden.
 
 I København kunne Keith få en ordentlig uddannelse og senere et velbetalt job. Hvis København var for tæt på for godsets renommé, så Berlin, Amsterdam eller Paris – ja selv Stockholm. Christian kunne selv vælge. Keith ville bare have et klart svar.
 
@@ -864,7 +864,7 @@ Den lille pille fik styr på Christians følelsesspektrum. Vreden forstummede og
 
 ## 35\.
 
-Louise sidder i sin gyngestol på terrassen og smiler for sig selv. Proseccoen i glasset er af den lidt dyrere slags, thi gunstige vinde blæser hendes retning. Manden er i gang med at kappe hovederne af roserne. Han er desværre ikke i stand til at finde roen og slappe af. Uden skam i livet, tænker Louise tilbage på sin far, den tidligere godsejer: *Nå, du vender dig rigtig nok i graven. Hvorfor skulle du absolut være sådan et dumt svin?*
+Louise sidder i sin gyngestol på terrassen og smiler for sig selv. Proseccoen i glasset er af den lidt dyrere slags, thi gunstige vinde blæser hendes retning. Manden er i gang med at kappe hovederne af roserne. Han er desværre ikke i stand til at finde roen og slappe af. Uden skam i livet tænker Louise tilbage på sin far, den tidligere godsejer: *Nå, du vender dig rigtig nok i graven. Hvorfor skulle du absolut være sådan et dumt svin?*
 
 Begivenhederne kunne ikke have udviklet sig bedre. Louise husker tilbage til Skærtorsdag, hvor godsejeren havde indkaldt til ekstraordinært familiemøde over frokost. Det var Knuds fornøjelse at annoncere, at han havde truffet en beslutning, og den stod ikke til at ændre. Den næste godsejer ville blive Christian, da han havde hænderne ordentligt skruet på og vigtigst af alt: hjertet på det rette sted. Ligesom Knud selv havde arvet størstedelen efter sin far, ville traditionen fortsætte. Alternativet ville være at splitte godset i atomer, og Knud nægtede at tænke den tanke.
 
@@ -892,7 +892,7 @@ Louise vidste godt, at de to ikke kunne lade denne urimelighed sidde overhørig.
 
 Snakken blev sikkert teoretisk. Hvis nu Christian kom ud for en ulykke, så måtte faren vælge en af dem som efterfølger, og så stod det frit for at sælge. Ingen kunne være sikker på at blive valgt, men hvis nu man gav hinanden en søster-broder garanti. Ingen havde lyst til at gøre noget overilet og slet ikke, hvis der var den mindste chance for at blive opdaget.
 
-Påskesøndag, vendte Louise tilbage til middag, hvor Knud serverede den nye tapas fra restauranten som forret. Louise roste skinken til skyerne – så delikat og velsmagende. “Er det mon en af de her ibe-et-eller-andet?” 
+Påskesøndag vendte Louise tilbage til middag, hvor Knud serverede den nye tapas fra restauranten som forret. Louise roste skinken til skyerne – så delikat og velsmagende. “Er det mon en af de her ibe-et-eller-andet?” 
 
 Knud syntes ikke, der var den store forskel, men var glad for at kunne bekræfte: “Ja, navnet du leder efter er Iberico \- sortfodsskinke fra Spanien. Ny på menukortet i år.”
 
@@ -920,11 +920,11 @@ Louises hjerne arbejdede på højtryk resten af middagen, hvor hun tænkte, om d
 
 Margrethe havde det der blanke udtryk i øjnene, som Louise kendte fra enkelte af gymnasiets elever. Margrethe havde taget et eller andet for at holde middagen ud. Det var en dyr livsstil, og hvis Louise kendte sin bror ret, så kom der ikke ret mange lommepenge mere. Gad vide om Margrethe supplerede sin indtjening ved at sælge til venner og bekendte? Det kunne vel ikke skade at spørge. Louise fiskede par tusindlapper frem og skjulte dem delvist i højre hånd. Men en stiv whisky i venstre, hviskede hun: “Du har vel ikke nogle af de der sjove halstabletter fra København? Det er ligesom at gnisten mangler i sengen.”
 
-Margrethe havde aldrig hørt sin tante tale sådan, men det ville da være dumt at lade en chance for profit gå til spilde. Nikkende tog hun imod pengene og kom tilbage med en lille pose med små gule piller. Ubemærket lod hun posen falde ned i Louises taske, som var efterladt åben med vilje. Uden skam over at have solgt til overpris, hviskede Margrethe, at en enkelt burde være rigeligt.
+Margrethe havde aldrig hørt sin tante tale sådan, men det ville da være dumt at lade en chance for profit gå til spilde. Nikkende tog hun imod pengene og kom tilbage med en lille pose med små, gule piller. Ubemærket lod hun posen falde ned i Louises taske, som var efterladt åben med vilje. Uden skam over at have solgt til overpris, hviskede Margrethe, at en enkelt burde være rigeligt.
 
 I et øjebliks klarsyn, gik en djævel i Louise, og hun så lyset. Hvorfor dele? Hvis Margrethe skulle være Frederiks alibi for mordet på Keith, så var det bare at fremstille et par falske ledetråde, der ville lede politiet på rette spor. Frederik ville tro, at Margrethe havde stukket ham og omvendt.
 
-Under et toiletbesøg fandt Louise en pincet og gik en lille omvej tilbage til selskabet. Ubemærket, sneg hun sig ind på Margrethes værelse, hvor hun med pincetten fjernede et par hår fra hovedpuden. På Christians værelse gemte hun posen med pillerne i inderlommen i en vinterfrakke uden at efterlade fingeraftryk.
+Under et toiletbesøg fandt Louise en pincet og gik en lille omvej tilbage til selskabet. Ubemærket sneg hun sig ind på Margrethes værelse, hvor hun med pincetten fjernede et par hår fra hovedpuden. På Christians værelse gemte hun posen med pillerne i inderlommen i en vinterfrakke uden at efterlade fingeraftryk.
 
 Et mord kræver planlægning, så det var nok mest sandsynligt at de søskende ville slå til efter semesteret for ikke at vække opsigt. Specielt hvis de nu fortrød i sidste øjeblik, for så skulle jo de tage fagene en gang til. Louise husker sloganet fra sin egen universitetstid: den største form for dovenskab er at bestå første gang.
 
@@ -938,7 +938,7 @@ Louise havde udvalgt sig en gammel printer på gymnasiet, som sjældent var i br
 
 Nu galt det om at udskifte menuen på det rette tidspunkt. Gjorde hun det for tidligt, var der en chance for, at den blev opdaget, erstattet og glemt. Hvis for sent, så faldt det hele til jorden. Louise tog den med ro de første par uger. Misfornøjet, bemærkede hun, at Christian og Keith undgik hinanden endnu mere end tidligere. Forhåbentlig var det bare for at fokusere på eksamen. Hvis deres forhold var slut, var planen måske gået i vasken. Da læseferien startede, blev hun for alvor bekymret og besluttede sig for at tage chancen og udskiftede menuen en sen aften.
 
-◇
+◈
 
 Louise nipper omhyggeligt de grønne topblade af et perfekt hjemmedyrket jordbær. Hvilken sødme, hvilken nydelse – passer perfekt til Proseccoen. En indre stemme hvisker noget om moral og hjerteløshed. *Kan Louise sove godt om natten?* *Er hun et godt menneske? Burde hun have ageret anderledes?* Faktisk lyder den mest som en slags summelyd – sikkert et insekt. Louise forsøger forgæves at det vifte væk, mens hun kalder på sin ægtemand: “Måske skulle du starte grillen?”
 
