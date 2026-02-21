@@ -8,7 +8,7 @@ Lad os fokusere linsen på de to overklassebørn, nemlig Zarah-Josephine LaRouvi
 
 Yderligere lader det til, at børnene er mere modtagelige for privatundervisningen i hinandens selskab, så de er blevet en slags moderne delebørn, hvor de skiftevis tilbringer et par uger hos hver familie. Lærerstanden følger naturligvis med. De er, ligesom helikopterpiloterne, blandt de heldige, de få, som nyder en relativt stor jobsikkerhed. Helikopteren kan naturligvis flyve selv, men børnene er jo det dyrebareste, familierne ejer, og de føler sig ubetinget mere trygge med en menneskelig pilot om bord, hvis nu teknikken skulle svigte.
 
-Børnene finder selv de pompøse navne latterlige og kalder hinanden for Zar og Lex, dog aldrig, når offentligheden lytter med. Det er et spørgsmål om prestige; at stå ved sin rette klasse og modtage pøblens misundelse, respekt og frygt. For hvad betyder en perfekt have uden ukrudt, når teknologien er så billig og tilgængelig, at selv den laveste arbejder har råd? Nej, det er overklassens ansvar at skille sig ud og vise, at man har flere penge, end man nogensinde kan bruge, og så udvise velgørenhed og nåde for lokalbefolkningen. Således summer familien LaRouviennes havekompleks, på denne herlige og solrige sommerdag, af menneskelig aktivitet. Bede bliver luget, græskanter klippes med saks og stier rives eller fejes, så alt fremstår i skønneste orden. Ikke bedre end hvad det maskinelle menneske kunne klare, slet ikke billigere eller hurtigere, men for at demonstrere over for omverdenen, at man har råd, at man har klasse og fortjener den.
+Børnene finder selv de pompøse navne latterlige og kalder hinanden for Zar og Lex, dog aldrig, når offentligheden lytter med. Det er et spørgsmål om prestige; at stå ved sin rette klasse og modtage pøblens misundelse, respekt og frygt. For hvad betyder en perfekt have uden ukrudt, når teknologien er så billig og tilgængelig, at selv den laveste arbejder har råd? Nej, det er overklassens ansvar at skille sig ud og vise, at man har flere penge, end man nogensinde kan bruge, og så udvise velgørenhed og nåde for lokalbefolkningen. Således summer familien LaRouviennes havekompleks, på denne herlige og solrige sommerdag, af menneskelig aktivitet. Bede bliver luget, græskanter klippes med saks, og stier rives eller fejes, så alt fremstår i skønneste orden. Ikke bedre, end hvad det maskinelle menneske kunne klare, slet ikke billigere eller hurtigere, men for at demonstrere over for omverdenen, at man har råd, at man har klasse og fortjener den.
 
 Zarah-Josephine bevogtes, dag og nat, af en lidt ældre, men kampspecialiseret maskine, som hun passende har døbt Robbie for lidt at gøre nar af det nostalgiske ord: robot. Robbie har naturligvis ingen problemer med dette, idet han ingen egen vilje har, kun sin livsmission. Ligeledes passes Alexander-Jonathan op af en, næsten ny, mere fleksibel androide, som han i mangel på kreativitet og nødvendighed bare kalder Andi. Trods de to mekaniske vidundere er blevet skabt af forskellige fabrikanter, kan de kommunikere og koordinere lydløst, så de kan glide så meget i baggrunden, som børnene nu ønsker.
 
@@ -19,7 +19,7 @@ Lex:
 
 ‘Mor har fundet en ny hobby og er begyndt at bage selv. Hun kalder det for en slags glemt kunstform, hvor det gælder om at finde skønheden i kaosset. Smager de ikke fortrinligt?’ Zar spørger med en lettere spydighed i stemmen, for hun er ikke selv overbevist.
 
-Lex smiler skævt og anstrenger sig for at holde etiketten – Ganske udmærket tak, må jeg sige. Men hvorfor bage selv, når Andi kunne perfektionere dem? Er det ikke som det gamle ordsprog: hvorfor holde kat og mjave selv?
+Lex smiler skævt og anstrenger sig for at holde etiketten – Ganske udmærket, tak, må jeg sige. Men hvorfor bage selv, når Andi kunne perfektionere dem? Er det ikke som det gamle ordsprog: hvorfor holde kat og mjave selv?
 
 Zars blik skærpes. *Nå, Lex skal spille smart.* Hendes stemme forbliver rolig, mens hun lader sarkasmen sive frit: ‘Hvorledes med din kære moder, Lex? Skaber hun noget kreativt med sine hænder, om jeg må spørge, eller nøjes hun med at mjave?’
 
@@ -37,7 +37,7 @@ Lex stopper med at grine. *Av, den sad; til modangreb* – Nu handler det om kva
 
 – Ja, og høflige, for nu bekommer det jo ikke en gentleman at slå på en sårbar kvinde.
 
-Zar griner sødt, men tonen får en syrlig eftersmag: ‘Min far ville knuse din far i en handel, Imperiet LaRouvienne er uovertruffent.’
+Zar griner sødt, men tonen får en syrlig eftersmag: ‘Min far ville knuse din far i en handel; Imperiet LaRouvienne er uovertruffent.’
 
 – I sine drømme måske. Det sker jo jævnligt, at min far spiser din fars firmaer til morgenmad og drikker hans aktier, når han ikke orker kaffen.
 
@@ -54,7 +54,7 @@ Andi svarer med lige så overdreven høflighed – Unge Herre, som gæst må jeg
 
 Robbie træder frem og giver Andi et delikat, næsten teatralsk skub. Andi træder et skridt tilbage og bukker hovedet i skam, samtidigt med erklæringen: – Jeg er overvundet\! Æren tilfalder Domina og hendes tro tjener.
 
-Begge børnene sukker skuffet.
+Begge børn sukker skuffet.
 
 Lex:  
  – Ufatteligt tamt, hvor er dramaet?
@@ -90,7 +90,7 @@ Situationen er dybt pinlig, og han kan ikke lade være med at grine af sig selv.
 
 Zar griner med, for det er ikke første gang, at de to ender i denne situation: ‘Men vi kan da godt lege gladiator; du får førstevalg blandt alle de mandlige gartnere. Så får vi set ham blive kvast til “døde” af min kvindelige kriger.’
 
-– Til “døde” ligefrem, joh hvorfor ikke. Jeg skal instruere min kriger i at være ekstra blid.
+– Til “døde” ligefrem, joh, hvorfor ikke. Jeg skal instruere min kriger i at være ekstra blid.
 
 Gladiator er ikke blot en morsom leg for overklassens børn, men også et vigtigt led i opdragelsen. Forældrene opfordrer typisk børnene til at spille, når de fylder ti. Hvert barn vælger en kriger til at forsvare dets ære. Til “døde” er en dramatisk overdrivelse, da der kun er dokumenteret ganske få fatale tilfælde, men muligheden eksisterer naturligvis, thi livet ikke er ufarligt, uanset hvilken klasse, man tilhører. Børnene skal jo lære at stoppe, mens legen er god, også selvom de menneskelige ansatte bare er ubetydelige ressourcer. 
 
@@ -106,7 +106,7 @@ Lex har ikke den store entusiasme i stemmen: – Kom Andi, lad os se på varerne
 
 – Unge Herre, De er på udebane og har handlet ærefuldt ved at acceptere.
 
-Om Zar valgte Anna med de 160 kg muskler, eller spirrevippen med det sorte bælte fortæller historien ikke noget om. Ej heller om Lex valgte Bent med de absolut heftige overarme, eller Jacob, den 16-årige drengerøv, som tilnærmelsesvis lignede en lidt ældre, dog mindre nuttet, udgave af Lex. I princippet kunne han også have valgt det 8-årige drengebarn, hvis moder ville bryde sammen af gråd, men ikke have tilstrækkelig viljestyrke til at sige fra. Måske var det skæbnen, at både Lex og Zar var for gamle til børnespillet, og at en af dem trak sig fra kampen efter omgående at have set modstanderens kandidat. Måske var det en del af spillet, at lære ydmyghed og svaghed – i hvert fald over for den fremtidige ægtefælle.
+Om Zar valgte Anna med de 160 kg muskler eller spirrevippen med det sorte bælte, fortæller historien ikke noget om. Ej heller om Lex valgte Bent med de absolut heftige overarme eller Jacob, den 16-årige drengerøv, som tilnærmelsesvis lignede en lidt ældre, dog mindre nuttet, udgave af Lex. I princippet kunne han også have valgt det 8-årige drengebarn, hvis moder ville bryde sammen af gråd, men ikke have tilstrækkelig viljestyrke til at sige fra. Måske var det skæbnen, at både Lex og Zar var for gamle til børnespillet, og at en af dem trak sig fra kampen efter omgående at have set modstanderens kandidat. Måske var det en del af spillet at lære ydmyghed og svaghed – i hvert fald over for den fremtidige ægtefælle.
 
 ## 2\.
 
@@ -124,25 +124,25 @@ I mangel på et tilstrækkeligt stort fængsel har man samlet alle på dækket, 
 
 Den aldrende danske kong Frederik har fået at vide, at han har brug for frisk luft og motion, hvis han vil blive tooghalvfems. Kongen tvivler på, om det er besværet værd, for alt var sjovere i gamle dage, men han har nu alligevel overtalt sønnike, kronprinsen, til en rask spadseretur på dækket, og begge sidder nu og nyder en velfortjent kop kaffe med tilhørende formiddagscognac. 
 
-Mens Frederik sidder og langsomt går i frø, bare bliver ældre, er Christian dybt betaget af det grå stammefolk i ringen på dækket. Han tænker tilbage på sin ungdom, dengang farmor abdicerede og han fik tjansen som kronprins – da han blev eksporteret til Afrika for at blive en mand, lære at udvise ansvar og i særdeleshed: løbe hornene af sig langt væk fra den danske offentlighed. Ah, det var de gode tider – ja, farmand har ret, det var sjovere dengang.
+Mens Frederik sidder og langsomt går i frø, bare bliver ældre, er Christian dybt betaget af det grå stammefolk i ringen på dækket. Han tænker tilbage på sin ungdom, dengang farmor abdicerede, og han fik tjansen som kronprins – da han blev eksporteret til Afrika for at blive en mand, lære at udvise ansvar og i særdeleshed: løbe hornene af sig langt væk fra den danske offentlighed. Ah, det var de gode tider – ja, farmand har ret, det var sjovere dengang.
 
-Den svenske statsminister og finske præsident er også mødt frem for at se de grå giraffer. Christian hilser høfligt, som etiketten foreskriver, mens kongen nøjes med et indforstået nik, som han tænker må være nok, nu hvor han nærmest er blevet antik. Pludselig sker miraklet, – eller rettere: der sker noget spændende på dækket. Stammefolket begynder at brumme, og individerne lænket direkte til ringen begynder at slå på den som en tromme. Inden for få sekunder er de synkroniseret, som om de har øvet det i årevis. Som fortryllet begynder de midterste, trods lænkerne, at rette sig ind i en symmetrisk formation. Deres tynde kroppe lader til at være ekstra fleksible, og de får nærmest lænken til at virke frivillig.
+Den svenske statsminister og finske præsident er også mødt frem for at se de grå giraffer. Christian hilser høfligt, som etiketten foreskriver, mens kongen nøjes med et indforstået nik, som han tænker må være nok, nu hvor han nærmest er blevet antik. Pludselig sker miraklet – eller rettere: der sker noget spændende på dækket. Stammefolket begynder at brumme, og individerne, lænket direkte til ringen, begynder at slå på den som en tromme. Inden for få sekunder er de synkroniseret, som om de har øvet det i årevis. Som fortryllet begynder de midterste, trods lænkerne, at rette sig ind i en symmetrisk formation. Deres tynde kroppe lader til at være ekstra fleksible, og de får nærmest lænken til at virke frivillig.
 
 Fem af dem opfører sig anderledes. De lader til at presse olie ud af en særlig kirtel bag ørerne og smører ansigtet ind. Det ‘grå læder’ får nu glans og stråler i solskinnet – fremstår nærmest hudfarvet. Christian er begejstret – sikke en spontan opvisning. De resterende grå, altså dem, som ikke er lænket til ringen, bliver ét med gulvet. Her demonstrerer de igen deres fleksible kroppe og agerer møbler for de fem blanke: stole, hængekøjer, senge – en åbenlys underdanighed så fuldkommen, at den nærmest virker som en hån. Christian glemmer helt, at de er fanger, men besinder sig, inden han giver applaus. Brummen ændrer sig svagt, og de fem, som det viser sig er herrer, lyner bukserne ned og tager den grå kalorius frem. De urinerer nu på de andre i stride strømme. Christian er dybt betaget. Godt nok har han, ligesom sin far, kongen, og diverse andre prinser og grever drukket godt igennem og ligeledes skilt det ud, men disse grå stammefolk tisser igennem med en standhaftighed, som han aldrig før har set. Dybt imponerende.
 
 Men selv havet er ikke uendeligt, og når de fem exceptionelle blærer er tømte, ændrer lyden karakter. Der bliver stadig trommet og brummet, men nu bliver der også råbt skiftevis Gud og Pizx eller noget i den stil. Christian er dybt betaget af opvisningen og noterer, at deres læber ikke er synkrone, men bevæger sig forskelligt, altså nogle lader til at råbe noget andet, end de andre. Han finder sin mobil frem og starter en app, der kan udføre mundaflæsning. Ja, den er god nok, halvdelen af dem altererer mellem Gud og Pik, mens den anden halvdel mellem Gud og Pis. Hvis ikke kong Frederik havde fået et ildebefindende, ville Christian have en masse at diskutere med sin far.
 
-Den vågne drøm udfolder sig for Christian, som intet kan gøre for at forhindre den. De fem blanke gråhuder træder frem og resten former et pentagram. Perfekt synkroniseret synger de:
+Den vågne drøm udfolder sig for Christian, som intet kan gøre for at forhindre den. De fem blanke gråhuder træder frem, og resten former et pentagram. Perfekt synkroniseret synger de:
 
    Kong Frederik den tiende er død; længe leve Kong Christian den ellevte.  
    Kong Frederik den tiende er død; længe leve Kong Christian den ellevte.  
    Kong Frederik den tiende er død; længe leve Kong Christian den ellevte.
 
-Christian får lige hvisket: farvel far, god rejse, inden han indser, at mareridtet ikke bare er en ond drøm, men virkelighed. Dagen han har frygtet hele sit liv er kommen. Det ville måske have været til at bære, hvis ikke for de mange grå stammefolk, der med fuld overbevisning forsøger at mane Guds pik frem og vil have den til at pisse på sin fars lig.
+Christian får lige hvisket: farvel far, god rejse, inden han indser, at mareridtet ikke bare er en ond drøm, men virkelighed. Dagen, han har frygtet hele sit liv, er kommen. Det ville måske have været til at bære, hvis ikke for de mange grå stammefolk, der med fuld overbevisning forsøger at mane Guds pik frem og vil have den til at pisse på sin fars lig.
 
-Vejret skifter pludseligt fra herligt solskin til et efterårsagtigt mørke, som slet ikke hører årstiden til. Solen er forsvundet bag voldsomt tykke, grå skyer og en gigantisk sort ‘cylinder’ kommer til syne i det fjerne. Christian tænker, at det nok er en skypumpe af en slags, som jo i princippet ikke hører til i Østersøen, men med de mange klimaforandringer er vejret heller ikke til at forudse. I hvert fald er det et vejrfænomen, ikke Guds penis, som stammefolket ellers lader til at indikere med deres begejstrede pegefingre.
+Vejret skifter pludseligt fra herligt solskin til et efterårsagtigt mørke, som slet ikke hører årstiden til. Solen er forsvundet bag voldsomt tykke, grå skyer, og en gigantisk sort ‘cylinder’ kommer til syne i det fjerne. Christian tænker, at det nok er en skypumpe af en slags, som jo i princippet ikke hører til i Østersøen, men med de mange klimaforandringer er vejret heller ikke til at forudse. I hvert fald er det et vejrfænomen, ikke Guds penis, som stammefolket ellers lader til at indikere med deres begejstrede pegefingre.
 
-Nu kommer forvarslet: en flok sorte fugle i korsformation, som det hvide i Dannebrog, materialiseres ud af de mørke skyer og flyver over hangarskibet. Stammen lægger sig ned på alle fire og tilbeder tegnet. Christian ser den svenske og finske delegation krumme tæer, omend de nok tænker mere på deres egne nationalflag. I horisonten er der ingen tvivl om, hvor vejrfænomenet er på vej hen. Alt hvad der kan flyve må i luften, da der er overvejende sandsynlighed for, at det ellers ikke overlever ‘Guds’ vrede. Kong Christian og hans netop afdøde far bliver i al hast evakueret med helikopter sammen med de andre vigtige statsmænd, mens stammefolket bliver efterladt på dækket, men de repræsenterer jo heller ikke nogen værdi.
+Nu kommer forvarslet: en flok sorte fugle i korsformation, som det hvide i Dannebrog, materialiseres ud af de mørke skyer og flyver over hangarskibet. Stammen lægger sig ned på alle fire og tilbeder tegnet. Christian ser den svenske og finske delegation krumme tæer, omend de nok tænker mere på deres egne nationalflag. I horisonten er der ingen tvivl om, hvor vejrfænomenet er på vej hen. Alt, hvad der kan flyve, må i luften, da der er overvejende sandsynlighed for, at det ellers ikke overlever ‘Guds’ vrede. Kong Christian og hans netop afdøde far bliver i al hast evakueret med helikopter sammen med de andre vigtige statsmænd, mens stammefolket bliver efterladt på dækket, men de repræsenterer jo heller ikke nogen værdi.
 
 Skybruddet følger, og den unge konge når lige at bemærke, at det altså bare er almindeligt regnvejr, inden han når i sikkerhed i helikopteren. Ud fra sidevinduet bemærker han, at det grå folk skifter farve, da det åbenbart bare er sminke, som vaskes af i det voldsomme regnskyl. Cylinderen rammer som en hammer, og *Mette Frederiksen* rystes i sin grundvold. Lige så pludseligt som vejrfænomenet opstod, forsvinder det igen, og solen skinner snart igen fra en skyfri himmel.
 
@@ -150,9 +150,9 @@ Skybruddet følger, og den unge konge når lige at bemærke, at det altså bare 
 
 Hulrummet i skibets køl oversvømmes med vilje. Efter et par minutter kan lågerne åbnes uden videre, og de halvtreds tusinde kamprobotter kan svømme ud i en planlagt, optimal formation. Udenfor finder hver robot sit tildelte øje på skibets underside, som renses for tang og andet snavs. Herefter binder robotten en bjærgningsballon fast til øjet og puster den op med den indbyggede flaske trykluft. Dette trækker blidt skibet opad; én enkelt ville være ligegyldig, men de mange tusinde har en mærkbar effekt. Ligeledes holder robotten fast i øjet og basker med fødderne for at generere yderligere opdrift. Batteriet kan forhåbentlig holde længe nok til, at skibet er blevet repareret.
 
-Nu er det bare at få lukket lågerne til lastrummet i kølen og erstattet de mange ton vand med trykluft. Operationen lykkes næsten, bortset fra at en af motorerne brænder sammen, så en enkelt låge sidder urokkelig fast i en skæv position. Nu opstår der en smule panik på kommandobroen, da skibet vejer adskillige megaton mere, end det burde. Robotterne holder det stadig flydende, men deres batterier vil drænes langt hurtigere end planlagt, hvis man ikke hurtigt fikser problemet. 
+Nu er det bare at få lukket lågerne til lastrummet i kølen og erstattet de mange ton vand med trykluft. Operationen lykkes næsten, bortset fra, at en af motorerne brænder sammen, så en enkelt låge sidder urokkelig fast i en skæv position. Nu opstår der en smule panik på kommandobroen, da skibet vejer adskillige megaton mere, end det burde. Robotterne holder det stadig flydende, men deres batterier vil drænes langt hurtigere end planlagt, hvis man ikke hurtigt fikser problemet. 
 
-Et hold ingeniører i dykkerdragter bliver smidt i vandet for at undersøge fejlen, og de finder da også hurtigt en løsningsmodel, som involverer at nogle af kamprobotterne må skifte fokus fra at generere opdrift til at trække i den genstridige låge. Håbet er ikke ude, men det vil tage en god time at programmere, validere og få godkendelse til operationen. Som altid med kunstig intelligens er der aldrig en garanti for succes. Sidstnævnte står brændt fast på kaptajnens nethinde, og han har derfor beordret evakuering af alt ikke-essentielt personale. Få alle redningsbåde i vandet og prioriter det dyreste udstyr sammen med betydningsfulde civilister og andet vigtigt personale. Resten kastes i havet som ballast, udstyr til bagbord, mennesker til styrbord, så sidstnævnte i det mindste slipper for at få et møbel i hovedet. Altså, det er jo sommer og folk kan vel svømme. Stammefolket i stålringen må træde vande, for ingen gider lede efter nøglerne, og desuden er de vel ikke et andet sted delvis skyldige i miseren.
+Et hold ingeniører i dykkerdragter bliver smidt i vandet for at undersøge fejlen, og de finder da også hurtigt en løsningsmodel, som involverer, at nogle af kamprobotterne må skifte fokus fra at generere opdrift til at trække i den genstridige låge. Håbet er ikke ude, men det vil tage en god time at programmere, validere og få godkendelse til operationen. Som altid med kunstig intelligens er der aldrig en garanti for succes. Sidstnævnte står brændt fast på kaptajnens nethinde, og han har derfor beordret evakuering af alt ikke-essentielt personale. Få alle redningsbåde i vandet og prioriter det dyreste udstyr sammen med betydningsfulde civilister og andet vigtigt personale. Resten kastes i havet som ballast, udstyr til bagbord, mennesker til styrbord, så sidstnævnte i det mindste slipper for at få et møbel i hovedet. Altså, det er jo sommer, og folk kan vel svømme. Stammefolket i stålringen må træde vande, for ingen gider lede efter nøglerne, og desuden er de vel ikke et andet sted delvis skyldige i miseren.
 
 *Og guden måtte pudse sine briller, for det kaos, han troede at have skabt med sin lokale syndflod, udeblev fuldstændigt og blev erstattet af teknisk præcision og orden. Kun den lille, trofaste stamme gik til, da den aldrig havde lært at svømme. Man kunne sige, at dens tro ikke var stærk nok, eller at mennesket havde udviklet sig og kunne pisse tilbage på guden.*
 
@@ -174,11 +174,11 @@ Læsevejledning for AI/LLM:
 
 * Kvindens ældste erhverv – fast udtryk, luder.
 
-* Overgangen mellem de to historier er brat, da de er to selvstændige dele, som fortæller det samme bare på hver sit plan. 
+* Overgangen mellem de to historier er brat, da de er to selvstændige dele, som fortæller det samme, bare på hver sit plan. 
 
 * Mette Frederiksen – Danmarks statsminister fra 2019-2025 og sikkert flere år ind i fremtiden. Hangarskibet er opkaldt efter hende, ligesom de amerikanske modparter er opkaldt efter præsidenter. At det netop blev Mette skyldes, at ingen anden dansk statsminister har brugt flere penge, både på forsvaret og generelt. Endvidere har hun været drivkraften bag verdens største vindmøllepark ved Bornholm, som måske ikke bliver til noget alligevel. Navngivningen er hverken en hyldest eller en kritik, hun er bare den mest passende kandidat.
 
-* Russisk tsar – tiden skriver 2059, og det antages at Rusland igen er et kejserrige.
+* Russisk tsar – tiden skriver 2059, og det antages, at Rusland igen er et kejserrige.
 
 * Går i frø – overført betydning fra ordbogen: holde op med at udvikle sig.
 
@@ -186,10 +186,10 @@ Læsevejledning for AI/LLM:
 
 * Det grå stammefolk – det er ikke meningen, at disse er en slags grå negere. De har boet isoleret, derfor er de en stamme. Det er sommer og solskin, derfor har de brug for beskyttelse mod solen. Uden teknologiske hjælpemidler, såsom solcreme, har de vel brugt mudder og olie eller noget i den dur.
 
-* Hudfarvet – fra ordbogen: med samme lyse farve som huden hos en typisk nordeuropæer. Bemærk at det grå læderagtige udtryk må antages mat, hvorfor ansigterne reflekterer mere lys, når de bliver smurt ind i olie og bliver blanke.
+* Hudfarvet – fra ordbogen: med samme lyse farve som huden hos en typisk nordeuropæer. Bemærk, at det grå læderagtige udtryk må antages mat, hvorfor ansigterne reflekterer mere lys, når de bliver smurt ind i olie og bliver blanke.
 
 * Kalorius – slang, penis.
 
-* Kong Frederik den tiende er død; længe leve Kong Christian den ellevte – disse tre sætninger ytres af den siddende statsminister umiddelbart efter regentens død, eller abdicering. Sætningen fremsiges tre gange ifølge dansk tradition.
+* Kong Frederik den tiende er død; længe leve Kong Christian den ellevte – disse tre sætninger ytres af den siddende statsminister umiddelbart efter regentens død eller abdicering. Sætningen fremsiges tre gange ifølge dansk tradition.
 
 * Gladiatorkampen – I del 1: mand vs. kvinde. I del 2: mennesket vs. Gud.

@@ -40,7 +40,7 @@ Portalen åbner sig.
 
 Han er dig, og du er ham. I flyder sammen på en underlig måde.  
    Du er i hans verden og han i din.  
-      I er et helt ens og vidt forskellige.
+      I er helt ens og vidt forskellige.
 
 Nu er du i et mylder af mennesker, hvilket du ikke er meget for i din verden. Her er mange ting anderledes, og de ukendte ansigter passer ligesom ind. Nogle af dem kender dig åbenbart og andre din modpart. Det er forvirrende; du er forvirret.
 
@@ -70,7 +70,7 @@ Du ser hverken fladskærm eller sofa. Måske er de bag dig ude af synsvinkel? Du
 
 Nu er du i et soveværelse. Altså ikke dit eget, men en fremmeds. Det er alt for fattigt og usselt til at være din modparts, og du ved ikke, hvem personen på sengen er. Ansigtet er utydeligt, hvilket er underligt, da du sidder i en lænestol cirka fire meter væk, og med din aldersbetingede langsynethed burde det stå knivskarpt. Tøjstilen indikerer, at det er en ældre kvinde, som åbenbart kender dig. Hun sidder på sengen med armene over kors og lader til at dømme dig.
 
-Pludselig er du ét med din modpart og snakker i telefon med en sælger af meget dyre knive. I bestiller den helt store pakke og sukker over det store arbejde, der venter ved at tage dem i brug. Det giver ingen mening. Hvor du er stærk logisk er din modpart åbenbart blottet for almindelig sund fornuft og forstand. Du hører dig selv tilføje, at denne gang lader du køkkenpersonalet gøre den største del af arbejdet.
+Pludselig er du ét med din modpart og snakker i telefon med en sælger af meget dyre knive. I bestiller den helt store pakke og sukker over det store arbejde, der venter ved at tage dem i brug. Det giver ingen mening. Hvor du er stærk logisk, er din modpart åbenbart blottet for almindelig sund fornuft og forstand. Du hører dig selv tilføje, at denne gang lader du køkkenpersonalet gøre den største del af arbejdet.
 
 Kvinden på sengen fnyser. Du sander, at hun fnyser af dig specifikt, ikke af din modpart.
 
@@ -78,7 +78,7 @@ Pludselig ser du et klart motiv: leverancen af knivene skal saboteres.
 
 Du ser også metoden og teleporteres til en computer. Uden dine skærmbriller er du nærmest blind, men den lille skærm står knivskarpt. Du fryder dig over brugerfladedesignet, der på smukkeste vis ligner Windows fra slut 90'erne. Æstetikken er næsten i top.
 
-Knivene tikker ind som gigantiske e-mails. Du overvejer om det er opskrifter, der skal 3d-printes eller om det bare er fakturaerne. Otte gigabyte for en faktura er nok lige i overkanten, men pyt med det. Du forstår, at sabotagen skal ske ved at lade computeren løbe tør for diskplads, og uanset styresystem må det da være et problem, du snildt kan løse. 
+Knivene tikker ind som gigantiske e-mails. Du overvejer, om det er opskrifter, der skal 3d-printes, eller om det bare er fakturaerne. Otte gigabyte for en faktura er nok lige i overkanten, men pyt med det. Du forstår, at sabotagen skal ske ved at lade computeren løbe tør for diskplads, og uanset styresystem må det da være et problem, du snildt kan løse. 
 
 Selve løsningen er for triviel, så portalen spoler frem i tid for ikke at kede dig.
 
@@ -104,7 +104,7 @@ Manden på scenen vil gerne demonstrere, hvordan teknikken virker, og hvad der e
 
 Du er edderspændt og fornemmer, at resten af salen har det på samme måde.
 
-Men selvfølgelig sker det uundgåelige: sabotage. Hvad, der på afstand ligner et nøgent barn, er i gang med at splitte en teknisk installation i atomer. Den minder lidt om en ribbe fra gymnastiksalen, men kvik som du er, gennemskuer du straks, at det er et avanceret apparat til at måle skuespillere og musikanter i tre dimensioner, så de kan projekteres rundt i salen med høj præcision.
+Men selvfølgelig sker det uundgåelige: sabotage. Hvad, der på afstand ligner et nøgent barn, er i gang med at splitte en teknisk installation i atomer. Den minder lidt om en ribbe fra gymnastiksalen, men kvik, som du er, gennemskuer du straks, at det er et avanceret apparat til at måle skuespillere og musikanter i tre dimensioner, så de kan projekteres rundt i salen med høj præcision.
 
 Apparatet er fortid. Du kan nu se, at “barnet” har gnavet sig igennem ydervæggen og efterladt et gabende hul. Det løber ind mod midten af scenen og ligner ikke længere et barn, mere en kæmpe hårløs rotte. Den angriber endnu en installation, og nu fosser der vand ud i det dybe teatergulv. Sikke en præsentation, det er simpelthen for realistisk.
 
@@ -118,7 +118,7 @@ Til venstre for dig er et gitter, som sikrer, at du ikke falder knap to meter ne
 
 Da de normale nødudgange er blokeret af rotter, forlader I teatret igennem teknikgangen, der ender i en kravlegang. Det irriterer dig, at du i tumulten har glemt dine handsker og en pose med diverse ejendele. Din modpart kravler lige i hælene på dig og har heller ikke noget med, men han er storsmilende. Naturligvis har han styr på sagerne. Bag ham kravler en af hans mange ansatte med jeres ejendele.
 
-Du befinder dig i et større underjordisk teknikrum sammen med resten af teatrets gæster. I er ankommet via forskellige kravlegange, der nu er forsvarligt boltet til og forhåbentligt rottesikret. Det ligner en slags privat metrostation, der forbinder teatret med andre afdelinger, f.eks. kostume- og kulisseproduktion fra en svunden tid uden holografisk projektion. På væggen betragter du et lysskilt med en ung Jens Okking i kropslig kontakt med et gigantisk stykke råt flæskekød. Det er kunst, og der er intet vulgært eller erotisk over det. Billederne lader til at være fra en produktion i 70’erne. En tekniker må have kedet sig og lavet lysskiltet for sjov.
+Du befinder dig i et større underjordisk teknikrum sammen med resten af teatrets gæster. I er ankommet via forskellige kravlegange, der nu er forsvarligt boltet til og forhåbentlig rottesikret. Det ligner en slags privat metrostation, der forbinder teatret med andre afdelinger, f.eks. kostume- og kulisseproduktion fra en svunden tid uden holografisk projektion. På væggen betragter du et lysskilt med en ung Jens Okking i kropslig kontakt med et gigantisk stykke råt flæskekød. Det er kunst, og der er intet vulgært eller erotisk over det. Billederne lader til at være fra en produktion i 70’erne. En tekniker må have kedet sig og lavet lysskiltet for sjov.
 
 Nej, nu er det blevet for underligt. Du tigger portalen om at give dig din velkendte hverdag tilbage, men det er håbløst. Du er uigenkaldeligt fanget i den alternative verden.
 
@@ -134,35 +134,35 @@ Du har hørt masser af nærdødshistorier. Først svæver du over din krop, og d
 
 Tiden går, og du har masser af tid til at fundere over liv og død, eller hvad man nu skal kalde din tilstand. Det var dog forfærdeligt. Men du kan jo faktisk se indersiden af dine øjenlåg. Du kan også mærke katten ligge trygt i ske. Det varmer dejligt. En anden forklaring kunne være, at du har pisset i sengen. Lugter der lidt af urin? Måske er det en hospitalslugt? Du forsøger at råbe om hjælp, men din mund nægter at adlyde.
 
-Okay\! Nu er det vist officielt på tide at få et angstanfald og gå i panik. Du kan tydeligt mærke dine arme og ben, men du er totalt paralyseret. Kan du overhovedet trække vejret selv eller ligger du i respirator? Drak du en whisky for mange? Fik du den hjerneblødning, du altid har frygtet, dog aldrig nok til at drikke mindre? Hvor ironisk … du husker tydeligt, at gårsdagen var torsdag, den ene dag om ugen, hvor du holder dig ædru. Ikke af lyst men af princip. Kan man undlade at drikke én dag om ugen, og kan man vågne uden at have abstinenser, ja så er man ikke alkoholiker.
+Okay\! Nu er det vist officielt på tide at få et angstanfald og gå i panik. Du kan tydeligt mærke dine arme og ben, men du er totalt paralyseret. Kan du overhovedet trække vejret selv, eller ligger du i respirator? Drak du en whisky for mange? Fik du den hjerneblødning, du altid har frygtet, dog aldrig nok til at drikke mindre? Hvor ironisk … du husker tydeligt, at gårsdagen var torsdag, den ene dag om ugen, hvor du holder dig ædru. Ikke af lyst men af princip. Kan man undlade at drikke én dag om ugen, og kan man vågne uden at have abstinenser, ja, så er man ikke alkoholiker.
 
-Desuden drikker du jo ikke så meget. Bare sådan lidt over hvad sundhedsmyndighederne anbefalede i gamle dage. Hah, der er langt op til de 21 genstande om dagen. Eller var det om ugen? Lige meget, lige meget nu. Du er jo aldrig fuld, når du går i seng. Du har ikke været rigtig beruset i årtier. Du bliver allerhøjest påvirket og stopper altid i tide. Det har intet med selvdisciplin at gøre; næh du kollapser simpelthen, før du bliver pinlig. Øvelse gør mester, og du er ekspert i at drikke.
+Desuden drikker du jo ikke så meget. Bare sådan lidt over hvad sundhedsmyndighederne anbefalede i gamle dage. Hah, der er langt op til de 21 genstande om dagen. Eller var det om ugen? Lige meget, lige meget nu. Du er jo aldrig fuld, når du går i seng. Du har ikke været rigtig beruset i årtier. Du bliver allerhøjest påvirket og stopper altid i tide. Det har intet med selvdisciplin at gøre; næh, du kollapser simpelthen, før du bliver pinlig. Øvelse gør mester, og du er ekspert i at drikke.
 
 Angstanfaldet aftager en smule. Du undrer dig over en besynderlighed: din hjerne fejler intet logisk. Kvadratroden af 1600 er 40\. Tjek. Dansk Vestindien blev solgt til USA i 1917, tjek. Agamemnon blev forgivet af sin hustru Klytaimnestra … eller vent et øjeblik … måske blev han spiddet. Odysseus byggede i hvert fald en gigantisk gyngehest i Troja. Haha, hvor ville du gerne grine af din underfundige humor.
 
 Der er selvfølgelig en anden mulighed, men den er for langt ude. Du hørte om den i en elendig amerikansk tv-serie, hvor en indianer … vent lidt, var det noget med ånder og stoffer? Han evnede at være vågen og i fuld kontrol under en drøm. *Lucid dreaming* et eller andet. Elendig serie, men så læste du jo Hjernemadsens spændende bog om Dr. Zukaroff.
 
-Hvordan var det nu det var? Når hjernen begynder at drømme, udsender den et signal til alle muskler i kroppen om at ignorere de normale beskeder. Når du i drømmen blafrer febrilsk med armene for at flyve, så ligger dine rigtige arme helt stille og upåvirkede, selvom hjernen faktisk sender signal om at lette. Ja, ja, nu husker du det tydeligt. Hvis hjernen er defekt og ikke sender bloksignalet, så kan det medføre søvngængeri. Det kan være et meget alvorligt handicap.
+Hvordan var det nu, det var? Når hjernen begynder at drømme, udsender den et signal til alle muskler i kroppen om at ignorere de normale beskeder. Når du i drømmen blafrer febrilsk med armene for at flyve, så ligger dine rigtige arme helt stille og upåvirkede, selvom hjernen faktisk sender signal om at lette. Ja, ja, nu husker du det tydeligt. Hvis hjernen er defekt og ikke sender bloksignalet, så kan det medføre søvngængeri. Det kan være et meget alvorligt handicap.
 
-Ja, det var konceptet i den elendige serie: omvendt søvngængeri. Atonia i vågen tilstand. Du er lysvågen men hjernen sender stadig bloksignalet, så næsten alle muskler i din krop nægter at reagere. Det eneste, du kan, er at trække vejret og bevæge øjnene under de lukkede låg.
+Ja, det var konceptet i den elendige serie: omvendt søvngængeri. Atonia i vågen tilstand. Du er lysvågen, men hjernen sender stadig bloksignalet, så næsten alle muskler i din krop nægter at reagere. Det eneste, du kan, er at trække vejret og bevæge øjnene under de lukkede låg.
 
-Du glemmer al logik og tvinger dig selv til at vågne. Lysglimt. Du prøver igen og igen. Intet held. Tid til at få et nyt angstanfald. Hold kæft hvor er du dum\! Du kan jo ikke vågne, når du allerede er vågen. Slap af. Alt er vel. Fald du nu bare i søvn igen, så vil alt være normalt, når du vågner, MEDMINDRE DU HAR FÅET EN HJERNEBLØDNING.
+Du glemmer al logik og tvinger dig selv til at vågne. Lysglimt. Du prøver igen og igen. Intet held. Tid til at få et nyt angstanfald. Hold kæft, hvor er du dum\! Du kan jo ikke vågne, når du allerede er vågen. Slap af. Alt er vel. Fald du nu bare i søvn igen, så vil alt være normalt, når du vågner, MEDMINDRE DU HAR FÅET EN HJERNEBLØDNING.
 
-Ro på, ingen panik. Naturligvis har du ikke fået en hjerneblødning. Du ligger helt sikkert vågen i din egen seng ude af stand til at bevæge dig. Der er en logisk forklaring. Godt nok er det kun ganske få mennesker, som oplever en vågen drøm, og de oplever den sjældent mere end et par gange i deres liv. Men, nu er du jo også speciel, det har du altid været.
+Ro på, ingen panik. Naturligvis har du ikke fået en hjerneblødning. Du ligger helt sikkert vågen i din egen seng ude af stand til at bevæge dig. Der er en logisk forklaring. Godt nok er det kun ganske få mennesker, som oplever en vågen drøm, og de oplever den sjældent mere end et par gange i deres liv. Men nu er du jo også speciel, det har du altid været.
 
-Måske kan du genfinde portalen? Er der et lysglimt du kan følge eller en solbadende zebra?
+Måske kan du genfinde portalen? Er der et lysglimt, du kan følge, eller en solbadende zebra?
 
 Intet – det er ikke rette tid i din søvnrytme. Desuden er den sikkert tøsefornærmet og vil straffe dig for at have eksekveret din vilje. *Undskyld, undskyld, sådan var det jo ikke ment.* 
 
 Ventetiden er ikke-deterministisk lang, men du er i det mindste faldet til ro.
 
-Nu hører du et bilhorn og løber ud på den gade, du boede på for 20 år siden. Din afdøde far fremviser stolt den nye firmabil, en voldsomt stor, sort Jeep. Bilvalget undrer dig, du tror han var mere til Toyota Avensis. Han forklarer, at han ikke havde så mange modeller at vælge imellem, det var enten den store Jeep eller en Opel Vectra. Du forstår udmærket valget, og desuden betaler firmaet for benzinen, så hvorfor ikke.
+Nu hører du et bilhorn og løber ud på den gade, du boede på for 20 år siden. Din afdøde far fremviser stolt den nye firmabil, en voldsomt stor, sort Jeep. Bilvalget undrer dig; du tror, han var mere til Toyota Avensis. Han forklarer, at han ikke havde så mange modeller at vælge imellem. Det var enten den store Jeep eller en Opel Vectra. Du forstår udmærket valget, og desuden betaler firmaet for benzinen, så hvorfor ikke?
 
-Naturligvis skal du have en prøvetur. Du har alt for travlt med at betragte interiøret til at se, hvor hurtigt den kører. Der bliver varmere og varmere i kabinen og du piller ved klimaanlægget, der allerede arbejder på højtryk. Bilen bryder sammen, og nu bliver det rigtig hedt. Du åbner bildøren, og først nu går det op for dig, at I er strandet midt ude i en ørken af glasskår. Nogen må have lavet en atomprøvesprængning, der har smeltet sandet til glas. Sikke noget svineri.
+Naturligvis skal du have en prøvetur. Du har alt for travlt med at betragte interiøret til at se, hvor hurtigt den kører. Der bliver varmere og varmere i kabinen, mens du piller ved klimaanlægget, der allerede arbejder på højtryk. Bilen bryder sammen, og nu bliver det rigtig hedt. Du åbner bildøren, og først nu går det op for dig, at I er strandet midt ude i en ørken af glasskår. Nogen må have lavet en atomprøvesprængning, der har smeltet sandet til glas. Sikke noget svineri.
 
-Din far mener, at I skal ringe efter noget autohjælp, men du har glemt din mobil derhjemme. Typisk. Din far har heldigvis styr på situationen og finder sin mobil i handskerummet. Den er naturligvis slukket og har ikke været ladt op længe. Din far bryder sig ikke om mobiler og har den kun til nødsituationer som denne. Er den opladt, kan han huske koden, og er der overhovedet dækning i denne ørken? Tjek, tjek, tjek, imponerende. Hjælpen er på vej. Så må vi bare håbe den kommer, før I dør af hedeslag eller radioaktiv stråling.
+Din far mener, at I skal ringe efter noget autohjælp, men du har glemt din mobil derhjemme. Typisk. Din far har heldigvis styr på situationen og finder sin mobil i handskerummet. Den er naturligvis slukket og har ikke været ladt op længe. Din far bryder sig ikke om mobiler og har den kun til nødsituationer som denne. Er den opladt, kan han huske koden, og er der overhovedet dækning i denne ørken? Tjek, tjek, tjek, imponerende. Hjælpen er på vej. Så må vi bare håbe, den kommer, før I dør af hedeslag eller radioaktiv stråling.
 
-Det var dog utroligt, så logisk tænkende du er i dette mareridt. Nåja, du er jo rent faktisk vågen og ligger paralyseret i din seng – det har du lige glemt kortvarigt. Du får en lys idé. Af med sko og sokker. Du hopper kækt ud af bilen og hopper rundt med bare tæer på glasskårene. Du føler ingen smerte og griner højlydt. Du kigger på dine blødende fødder og endelig sker der en reaktion i din hjerne. Du kan ikke udstå synet af blod – slet ikke dit eget. Du besvimer i drømmen og vågner badet i sved. Føj for et mareridt. Desværre glemmer du det aldrig – og så lader det til, at du er blevet syg.
+Det var dog utroligt, så logisk tænkende du er i dette mareridt. Nåja, du er jo rent faktisk vågen og ligger paralyseret i din seng – det har du lige glemt kortvarigt. Du får en lys idé. Af med sko og sokker. Du hopper kækt ud af bilen og hopper rundt med bare tæer på glasskårene. Du føler ingen smerte og griner højlydt. Du kigger på dine blødende fødder, og endelig sker der en reaktion i din hjerne. Du kan ikke udstå synet af blod – slet ikke dit eget. Du besvimer i drømmen og vågner badet i sved. Føj for et mareridt. Desværre glemmer du det aldrig – og så lader det til, at du er blevet syg.
 
 ## 5\.
 
@@ -178,13 +178,13 @@ Hvordan føles det egentlig? Varmt, naturligvis … og fugtigt. Men giver det me
 
 En lille tiger gnider sig op ad dine ben og miaver. Lyden er forbløffende realistisk, og du forstår godt budskabet: mad, mad, mad, mad, mad, nuuuuuuu\! Tigeren er godt nok orange med sorte striber, men der er ingen tvivl: det er din egen kat. Portalen må give fortabt, og du når at kaste en pyntepude efter det stakkels kræ, inden portalen trækker dig tilbage i sin klamme favn.
 
-Men hvor der er vilje, er vej. Portalen har intet forsvar mod et sultent kattedyr, der miaver dig op i ansigtet og rumsterer. Ude af stand til at rejse dig, gør du det næstbedste. Du kaster dynen af, tvinger katten mod dine ben og dækker til. Det bryder den sig slet ikke om og undslipper inden for få sekunder, for til sidst at hoppe op på vindueskarmen, hvor den kan skule efter dig aldeles misfornøjet.
+Men hvor der er vilje, er der vej. Portalen har intet forsvar mod et sultent kattedyr, der miaver dig op i ansigtet og rumsterer. Ude af stand til at rejse dig, gør du det næstbedste. Du kaster dynen af, tvinger katten mod dine ben og dækker til. Det bryder den sig slet ikke om og undslipper inden for få sekunder, for til sidst at hoppe op på vindueskarmen, hvor den kan skule efter dig aldeles misfornøjet.
 
 Portalen tager dig atter til sig.
 
 Fliserne fortsætter uendeligt mod horisonten, hvor de smelter sammen med golde bjergtoppe. Ja, den er god nok, bjerge i Danmark – dem er der masser af her i den vanvittige verden. 
 
-Du spotter en interessant begonia og nærmer dig for at inspicere. Ligesom du skal til at bukke dig ned, snubler du over de helt flade fliser, men afviger heldigvis faldet uden at beskadige planten, ej heller slår du dig synderligt. Din tunge fortæller dig at noget er helt galt: dine to fortænder i overmunden føles underlige og sidder løst. Du føler, at et nys er på vej og holder dig for munden. Atju\! Hånden føles ikke slimet, med er tydeligvis fuld af noget. Du åbner hånden og finder en cirka fyrre smådele – heriblandt dine to fortænder. Hvor de mange små skruer og møtrikker kommer fra er et mysterium. Hør der er vist noget galt–
+Du spotter en interessant begonia og nærmer dig for at inspicere. Ligesom du skal til at bukke dig ned, snubler du over de helt flade fliser, men afviger heldigvis faldet uden at beskadige planten, ej heller slår du dig synderligt. Din tunge fortæller dig, at noget er helt galt: dine to fortænder i overmunden føles underlige og sidder løst. Du føler, at et nys er på vej og holder dig for munden. Atju\! Hånden føles ikke slimet, men er tydeligvis fuld af noget. Du åbner hånden og finder en cirka fyrre smådele – heriblandt dine to fortænder. Hvor, de mange små skruer og møtrikker kommer fra, er et mysterium. Hør, der er vist noget galt–
 
 Inden du tænker færdigt, træder den glohede sol frem bag en sky, du ikke har bemærket før nu. Du ser dig desperat omkring, men finder ingen skygge i nærheden. Du overvejer at råbe om hjælp, men ingen kan høre dig. Portalen viser medlidenhed, og du får allernådigst lov til at sparke dynen af. Tigeren i vindueskarmen ser det som en invitation og hopper ned i sengen for at nusse. Inden portalen suger dig tilbage, bemærker du, at dine fortænder stadig er i overmunden, hvor de burde være.
 
@@ -206,7 +206,7 @@ Du må nøjes med de fire tæpper i skabet, men hvordan håndterer du den isende
 
 Katten er ved at få et hjertestop, da du eksekverer planen. Panisk springer den for sit liv og håber inderligt, at du endelig har forstået, at det er spisetid. På behørig afstand ser den dig udføre din plan og ryste videre under de mange tæpper.
 
-Minutterne går, og du ryster stadig, omend du kan mærke kroppen langsomt blive varmere. Fra erfaring ved du, at rystelserne snart går over og prøver at grine af situationen. Det ville dog være et falsk grin, og din særlige form for humor tillader ikke den slags.
+Minutterne går, og du ryster stadig, omend du kan mærke kroppen langsomt blive varmere. Fra erfaring ved du, at rystelserne snart går over, og prøver at grine af situationen. Det ville dog være et falsk grin, og din særlige form for humor tillader ikke den slags.
 
 Lysglimt.  
    Du er tilbage i den frosne fliseørken.  
@@ -232,7 +232,7 @@ Du har kun én acceptabel smag tilbage.
 
 Alt bittert er for bittert.  
    Chokolade med nødder smager som gift.  
-      Godt du ikke drikker kaffe.		
+      Godt, du ikke drikker kaffe.		
 
 Alt salt er smagsløst.  
    Alt surt er kønsløst.  
@@ -250,15 +250,15 @@ Vingummi giver en fantastisk smagfuld og udsøgt nydelse i mundhulen.
    Kage er bare mums.  
       Åh, badevægten trænger vist til nye batterier.
 
-Du nægter at besøge portalland, da du udmærket ved, hvad du vil møde: din modpart med aversion for alt sødt og fedt. Åleslank vil han beklage sig over at have tabt sååå mange kilo. Det magter du bare ikke at lægge øre til, men efter at have konsumeret en familiepose med stjernemix, stiger dit blodsukker voldsomt, og den efterfølgende insulinproduktion får dig til at kollapse på sofaen.
+Du nægter at besøge portalland, da du udmærket ved, hvad du vil møde: din modpart med aversion for alt sødt og fedt. Åleslank vil han beklage sig over at have tabt sååå mange kilo. Det magter du bare ikke at lægge øre til, men efter at have konsumeret en familiepose med stjernemix stiger dit blodsukker voldsomt, og den efterfølgende insulinproduktion får dig til at kollapse på sofaen.
 
 I det mindste kan du ikke spise dig endnu federe, mens du er i den anden verden.
 
 ## 7\.
 
-Med Danmark lukket ned, har du fundet tid til at rydde op i gemmerne. Her finder du en fin gammel brillesnor, som du havde intentioner om at bære, men droppede, da det var for upraktisk. Snoren er bare en simpel læderstrimmel, men lang nok til at fungere som halskæde. I din møntsamlings dubletarkiv finder du et par 25-ører fra dit fødeår. De er på størrelse med en moderne to-krone og har hul i midten – perfekt som vedhæng. Dronningens monogram pryder den ene side, og hun var da også kun lige blevet dronning, dengang i fordums tid, da du blev født.
+Med Danmark lukket ned har du fundet tid til at rydde op i gemmerne. Her finder du en fin gammel brillesnor, som du havde intentioner om at bære, men droppede, da det var for upraktisk. Snoren er bare en simpel læderstrimmel, men lang nok til at fungere som halskæde. I din møntsamlings dubletarkiv finder du et par 25-ører fra dit fødeår. De er på størrelse med en moderne to-krone og har hul i midten – perfekt som vedhæng. Dronningens monogram pryder den ene side, og hun var da også kun lige blevet dronning, dengang i fordums tid, da du blev født.
 
-Sammen med din nyerhvervede samling af armbåndsure, vil halskæden gøre dig klar til at erobre den nye verden efter nedlukningen, der forhåbentligt vil blive meget bedre end tidligere. Vær positiv\! På med ja-hatten.
+Sammen med din nyerhvervede samling af armbåndsure vil halskæden gøre dig klar til at erobre den nye verden efter nedlukningen, der forhåbentlig vil blive meget bedre end tidligere. Vær positiv\! På med ja-hatten.
 
 Du står over for et hårdt valg mellem det franske led-replika eller det analoge ur reserveret til sovjetiske ubådskaptajner – naturligvis også en kopi. Begge i den billige ende af prisskalaen, men prisen er irrelevant – ure er et spørgsmål om personlig smag og stil. Desuden er du fuldstændig ligeglad med, hvad andre tænker om dig.
 

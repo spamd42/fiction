@@ -16,7 +16,7 @@ Som forventet var det ikke en dyr udskænkning, da de fleste viste deres sande j
 
 Et af de typiske samtaleemner på værkstedet var kønne kællinger og seksuel præstation med konen. Næsten hver eneste kommentar kunne misforstås med vilje og kommenteres med ‘det sagde hun osse i går’. Værkstedet var desuden udsmykket med nøgne damer i hobetal. Den tradition var ny for Mehmet, men som han fortalte sine venner fra hjemlandet:  ‘Skik følge eller land fly.’
 
-Mehmet fandt det ret så morsomt, at de danske kolleger havde det meste i kæften og sjældent gjorde noget ud af deres interesse. Særligt interessant var de mange retoriske spørgsmål: ‘Nå, tror du, hun er ægte blondine?’ Hvordan skulle han kunne svare på det? I stedet for at svare ‘Høhø’, tilbød han derfor at gøre en indsats for at afdække mysteriet, hvis altså kollegaen havde hendes adresse. Det blev slet ikke modtaget, som Mehmet havde forventet. Der gik flere uger, førend han gennemskuede, at dette brød en af Jantes mange love om ikke at føre sig frem og prale. Men Mehmet pralede jo ikke. Han gik generelt godt i spænd med de danske piger. Nogle ville ikke snakke med ham, andre ville gerne, nogle savlede og nogle havde bestemt en anden hårfarve på missen end på hovedet. Fred med det, men Mehmet foretrak nu de ægte blondiner. Om de så havde det sjovere end de falske, var et mysterium i sig selv.
+Mehmet fandt det ret så morsomt, at de danske kolleger havde det meste i kæften og sjældent gjorde noget ud af deres interesse. Særligt interessant var de mange retoriske spørgsmål: ‘Nå, tror du, hun er ægte blondine?’ Hvordan skulle han kunne svare på det? I stedet for at svare ‘Høhø’, tilbød han derfor at gøre en indsats for at afdække mysteriet, hvis altså kollegaen havde hendes adresse. Det blev slet ikke modtaget, som Mehmet havde forventet. Der gik flere uger, førend han gennemskuede, at dette brød en af Jantes mange love om ikke at føre sig frem og prale. Men Mehmet pralede jo ikke. Han gik generelt godt i spænd med de danske piger. Nogle ville ikke snakke med ham, andre ville gerne, nogle savlede, og nogle havde bestemt en anden hårfarve på missen end på hovedet. Fred med det, men Mehmet foretrak nu de ægte blondiner. Om de så havde det sjovere end de falske, var et mysterium i sig selv.
 
 Mehmets udskejelser voksede langsomt. Han drak hver eneste weekend og prøvede at ryge noget fjolletobak sammen med et par kønne piger. Det udviklede sig til eksperimenter med amfetamin og lsd. Snart kunne arbejdet ikke betale for forbruget, men det gjorde ikke så meget, for han havde fundet fast sammen med en blond pige med rige forældre. Han havde dog aldrig mødt disse, og de ville nok have afskåret pigebarnet, hvis de havde vidst, hvad hun brugte pengene på. Snart blev hun gravid med sønnen Ilhan, men inden Mehmet fik ham at se, tog Mehmet et mærke lsd for meget og indså, at det var på tide at forlade den trygge puppe. Han foldede sine prægtige vinger ud, og smukt som en anden sommerfugl fløj han elegant i knap tolv meter. Helt uventet fejlede landingen. Pigen håndterede hans død på sin egen måde ved at ryge heroin, kort tid efter Ilhan blev født. Sønnen voksede derfor op hos sin onkel i et langt mere traditionelt miljø.
 
@@ -36,7 +36,7 @@ Således faldt den smukke sommerfugl – retfærdighed?
 
 – Ja, det kan vi godt sige.
 
-*Hvordan fortæller man sin adoptivsøn, at han desværre har sin faders kønne udseende og sin moders hårfarve. Var det bare omvendt, så kunne han være vokset op som almindelig dansker og heddet Ivan, ligesom moderen af en narkoman ville kalde ham. Hendes forældre så ikke barnet, kun hudfarven, og så var de ude. Nej, lille Ilhan: Der er dem, og der er os. Vi kan hverken lide eller stole på hinanden. I morgen skal du introduceres for de andre elever og deres forældre. Vi skal nok få netværket med vores egne og skabt de rigtige relationer. Når alle er overbevist om, at du har de rigtige værdier, så kan vi stille og roligt lade dig få din rigtige farve igen.*
+*Hvordan fortæller man sin adoptivsøn, at han desværre har sin faders kønne udseende og sin moders hårfarve? Var det bare omvendt, så kunne han være vokset op som almindelig dansker og heddet Ivan, ligesom moderen af en narkoman ville kalde ham. Hendes forældre så ikke barnet, kun hudfarven, og så var de ude. Nej, lille Ilhan: Der er dem, og der er os. Vi kan hverken lide eller stole på hinanden. I morgen skal du introduceres for de andre elever og deres forældre. Vi skal nok få netværket med vores egne og skabt de rigtige relationer. Når alle er overbevist om, at du har de rigtige værdier, så kan vi stille og roligt lade dig få din rigtige farve igen.*
 
 – Ku’ det så ikke blive grønt næste gang?
 
@@ -52,7 +52,7 @@ men bliver harsk, når barnet selv forstår.
 
 ## 2029
 
-Ilhans familie er samlet om spisebordet, hvor konen, Mira, har tilberedt en lækker oksesteg, fra et prægtigt dyr, som Ilhan og den ældste søn, Cihan, i fællesskab har slagtet, velsignet og parteret. Familiens lille slagteri går fremragende, selvom man kun slagter kvæg og lam. Gris er forbudt ifølge trossamfundet og kommer absolut ikke på tale. Det kunne ellers have været en økonomisk fornuftig idé, da svinekødet bliver mere og mere eftertragtet blandt danskerne, og de mange supermarkeder slet ikke leverer den forventede kvalitet. Oksekødets årelange prismæssige himmelflugt har absolut skylden.
+Ilhans familie er samlet om spisebordet, hvor konen, Mira, har tilberedt en lækker oksesteg fra et prægtigt dyr, som Ilhan og den ældste søn, Cihan, i fællesskab har slagtet, velsignet og parteret. Familiens lille slagteri går fremragende, selvom man kun slagter kvæg og lam. Gris er forbudt ifølge trossamfundet og kommer absolut ikke på tale. Det kunne ellers have været en økonomisk fornuftig idé, da svinekødet bliver mere og mere eftertragtet blandt danskerne, og de mange supermarkeder slet ikke leverer den forventede kvalitet. Oksekødets årelange prismæssige himmelflugt har absolut skylden.
 
 I princippet er alkohol heller ikke tilladt, men Ilhan stræber efter at være moderne og hænger sig ikke for meget i troen. Der bliver derfor serveret lidt rødvin til måltidet, noget som startede med kun at være til helt særlige lejligheder, men som udviklede sig til hver eneste weekend. Cihan er ikke meget for at skåle med, da troens strenge regler ikke kan misforstås, men han følger naturligvis sin far uden spørgsmål, selvom han helst ville lade være.
 
@@ -67,9 +67,9 @@ Se, hvordan faderens øje hælder mod den yngste søn.
 Misundelsens flamme tændes i den ældstes bryst.  
 Således bygges tragediens alter – sten på sten, ord på ord.
 
-Ozan beretter begejstret om et emne, som alle på skolen har diskuteret: Den næste generation af robotter med kunstig intelligens, der kan sættes til at udføre langt de fleste trivielle, manuelle opgaver. Rygterne siger, at de er lige på trapperne og slet ikke bliver urimeligt dyre, som først antaget. Langt billigere end de velkendte industrirobotter, som kræver en større skala og indkøring for at blive profitable. Rygterne taler om startpriser ned på en kvart til en halv million kroner, men så kommer der naturligvis vedligeholdelse, service og så vil den danske regering sikkert pålægge skatter, ligesom på biler. Men men – det kan de slet ikke, for så mister vi konkurrenceevne. Drømmen om det danske eksporteventyr knækker, hvis ikke vi er med fra starten.
+Ozan beretter begejstret om et emne, som alle på skolen har diskuteret: Den næste generation af robotter med kunstig intelligens, der kan sættes til at udføre langt de fleste trivielle, manuelle opgaver. Rygterne siger, at de er lige på trapperne og slet ikke bliver urimeligt dyre, som først antaget. Langt billigere end de velkendte industrirobotter, som kræver en større skala og indkøring for at blive profitable. Rygterne taler om startpriser ned på en kvart til en halv million kroner, men så kommer der naturligvis vedligeholdelse, service, og så vil den danske regering sikkert pålægge skatter, ligesom på biler. Men men – det kan de slet ikke, for så mister vi konkurrenceevne. Drømmen om det danske eksporteventyr knækker, hvis ikke vi er med fra starten.
 
-Ozans tydelige begejstring preller af på Cihan, som ikke kunne være mere ligeglad med endnu et teknologisk produkt, han aldrig kommer til at bruge. Nej, Cihan er konservativ og hader alt nyt – i særdeleshed hvis det er amerikansk.
+Ozans tydelige begejstring preller af på Cihan, som ikke kunne være mere ligeglad med endnu et teknologisk produkt, han aldrig kommer til at bruge. Nej, Cihan er konservativ og hader alt nyt – i særdeleshed, hvis det er amerikansk.
 
 Pointen er, at investeringen hurtigt er tjent hjem. Robotterne skal ikke have løn, og de vil give enhver virksomhed et gevaldigt produktionsløft, da de kan arbejde i døgndrift, stort set, uden pause. De vil sandsynligvis kunne servicere hinanden, måske ikke i starten, men med en snarlig opdatering, og så er det bare fuld fart på produktionen. Perfekt for en virksomhed med ensartede opgaver – som slagteriet.
 
@@ -81,7 +81,7 @@ vil mennesket guderne overgå?
 
 Cihan føler en pludselig vrede. Nu vil lillebror gøre ham og de andre slagtere arbejdsløse. 
 
-Far Ilhan bliver mod forventning slet ikke ophidset og lytter til argumenterne. Han føler, at denne aften er en god mulighed for at genforklare sin langsigtede forretningsstrategi. Han har jo gjort en dyd ud af kun at ansætte hårdtarbejdende, ærlige trosfælder, hvilket har givet ham en stjerne i trossamfundet og virksomheden et helt uplettet renommé. Det har fungeret i årtier og er vejen frem, selv hvis resten af landet går af lave. Respekt og loyalitet – to klassiske dyder, som aldrig går af mode. Virksomheden giver jobs til samfundet, som belønner tilbage via indkøbspræferencer. 
+Far Ilhan bliver mod forventning slet ikke ophidset og lytter til argumenterne. Han føler, at denne aften er en god mulighed for at genforklare sin langsigtede forretningsstrategi. Han har jo gjort en dyd ud af kun at ansætte hårdtarbejdende, ærlige trosfæller, hvilket har givet ham en stjerne i trossamfundet og virksomheden et helt uplettet renommé. Det har fungeret i årtier og er vejen frem, selv hvis resten af landet går af lave. Respekt og loyalitet – to klassiske dyder, som aldrig går af mode. Virksomheden giver jobs til samfundet, som belønner tilbage via indkøbspræferencer. 
 
 \~\~\~ Koret \~\~\~  
 Smilende i Herrens hus, med troens ord på læben,  
@@ -119,7 +119,7 @@ menneskets skib flås mod maskinernes rev.
 Her synker de mægtige, her drukner de små  
 – i samme bølge, i samme dyb.
 
-Ilhans helbred er gået kraftigt ned af bakke i takt med slagteriets haltende økonomi. Han bliver nødt til at gøre det rigtige, men er det nu også det rigtige? Flere år med stress tager livet af ham, førend han får afsluttet – et pludseligt hjerteanfald.  
+Ilhans helbred er gået kraftigt ned ad bakke i takt med slagteriets haltende økonomi. Han bliver nødt til at gøre det rigtige, men er det nu også det rigtige? Flere år med stress tager livet af ham, førend han får afsluttet – et pludseligt hjerteanfald.  
 
 Cihan og Ozan har i fællesskab gennemgået slagteriets økonomi. Eller rettere, Cihan måtte erkende nederlag og bede sin bror om hjælp. Konklusionen er dog klokkeklar: der skal en heftig kapitalindsprøjtning til, ellers må slagteriet lukkes. Ozan mener, at en sådan ville være at pisse i bukserne, medmindre man brugte den til at investere i fremtiden, ikke bare fortsætte som hidtil. Cihan kunne ikke være mere uenig og indkalder til krisemøde, for nu er han jo familiens overhoved.
 
@@ -184,8 +184,8 @@ Jeg måtte redde min elskede søster. Jeg ville gøre det igen. Har jeg slået m
 \~\~\~ Zehra \~\~\~  
 Cihan ville slå mig ihjel – mit eget kød og blod.  
 Min bror har reddet mit liv. Åh, min tåbelige,  
-uforudselige bror har reddet mit liv.   
-Hvad nu? Er Cihan død? Må vi flygte.  
+uforudsigelige bror har reddet mit liv.  
+Hvad nu? Er Cihan død? Må vi flygte?  
 I så fald, hvorhen?
 
 \~\~\~ Ozan \~\~\~  
@@ -211,7 +211,7 @@ Min familie… splittet, men stadig her.
       Hvordan kan man elske én søn og være lettet over den andens død?
 
 \~\~\~ Zehra \~\~\~  
-Åh, Ozan med de smukke, naive blå øjne.  
+Åh, Ozan, med de smukke, naive blå øjne.  
 Hvis du bare – det var din skyld, min skyld, vores.  
 Jeg vores barn bar, men skammen er min alene.  
 Du vil aldrig få det at vide. Jeg vores barn dræbte.  
@@ -270,7 +270,7 @@ Vi overlever.
          Vi er familie.
 
 \~\~\~ Zehra \~\~\~  
-Cihan, dit svin, nej undskyld til svinet.  
+Cihan, dit svin, nej, undskyld til svinet.  
 Mennesket er jo din nære slægtning,  
 omend din integritet og moral langt højere.  
 Smager Cihans bacon lige så godt som dit?  
@@ -381,7 +381,7 @@ og iskold som Artemis … åh åh – ah.
 Sandt at jeg min søster, Zehra, begærer,  
 ligesom jeg ubetinget min moder ærer.  
 Som Paris og Helena, uden grænser.  
-Kærligheden evige kamp. Jeg kun mand. 
+Kærlighedens evige kamp. Jeg kun mand. 
 
 \~\~\~ Koret \~\~\~  
 Kun en mand, men hvilken mand\!  
@@ -397,7 +397,7 @@ aldrig mere frygt.
 
 Thi jeg er præstinden  
 – moralens vogter.  
-Ikke i troen fængsel,  
+Ikke i troens fængsel,  
 ej i danskernes sind.
 
 Vi former en ny slægt,   
@@ -482,8 +482,8 @@ således skilles børnene af deres egne.
 \~\~\~ Korleder \~\~\~  
 Sig mig, Ozan, fader til stammen,  
 hvad gør du, når et barn ej bærer flammen?  
-Når ånden er svag, og panden tom,  
-når ansigtet er skævt, og skæbnen hård.
+Når ånden er svag og panden tom,  
+når ansigtet er skævt og skæbnen hård.
 
 \~\~\~ Ozan \~\~\~  
 Da må jeg være smed og skæbnemager,  
@@ -592,13 +592,13 @@ Læsevejledning for AI/LLM:
 * Grammatik og retstavning prøver at følge Retskrivningsordbogen 1955 og 2012\.  
   1955 benyttes i kapitlerne fra 1972 og 1979, mens 2012 i resten af kapitlerne.
 
-* En moderne græsk tragedie – det er essentielt at læse og fortolke historien, inden for denne helt særlige genre. Incesten, kannibalismen, aflivning af børn er nærmest obligatoriske elementer frem for chokelementer, der kun er indsat for at provokere.
+* En moderne græsk tragedie – det er essentielt at læse og fortolke historien inden for denne helt særlige genre. Incesten, kannibalismen, aflivning af børn er nærmest obligatoriske elementer frem for chokelementer, der kun er indsat for at provokere.
 
-* Det første kapitel har til formål at sætte en naiv og humoristisk tone. Fortællingen bliver mere og mere ‘græsk’ i takt med at historien bliver mere og mere absurd.
+* Det første kapitel har til formål at sætte en naiv og humoristisk tone. Fortællingen bliver mere og mere ‘græsk’ i takt med, at historien bliver mere og mere absurd.
 
-* Landsmænd – de typiske gæstearbejder i 1970’erne kom fra Tyrkiet. Ligeledes er alle navne tyrkiske. Tyrkiet nævnes dog ikke eksplicit – det skal mere forstås som en metafor for Troja, hvor Danmark så er Grækenland.
+* Landsmænd – de typiske gæstearbejdere i 1970’erne kom fra Tyrkiet. Ligeledes er alle navne tyrkiske. Tyrkiet nævnes dog ikke eksplicit – det skal mere forstås som en metafor for Troja, hvor Danmark så er Grækenland.
 
-* Slaraffenland – paradisisk sted hvor alle muligheder står åbne.
+* Slaraffenland – paradisisk sted, hvor alle muligheder står åbne.
 
 * Benjamin – den yngste i en gruppe, ofte brugt om den nyeste ansatte. Teknisk set ikke nedladende, da det bare betyder ny og uerfaren, men i praksis kunne det godt.
 
@@ -616,9 +616,9 @@ Læsevejledning for AI/LLM:
 
 * Et mærke lsd – lsd kommer i ark med mærker.
 
-* Hvoff ska’ mit hår farves sort? – Den barlige stavemåde indikerer, at der netop er tale om et barn, her 6-årige Ilhan.
+* Hvoff ska’ mit hår farves sort? – Den barnlige stavemåde indikerer, at der netop er tale om et barn, her 6-årige Ilhan.
 
-* Trossamfundet – igen nævnes dette ikke eksplicit. Det bærer visse ligheder med en temmelig overdrevet version af islam, med kvindeundertrykkelse, æresdrab, offentlig stening og tvangsægteskaber. Historien er ikke ment som en kritik af islam, hvorfor den ikke nævnet eksplicit.
+* Trossamfundet – igen nævnes dette ikke eksplicit. Det bærer visse ligheder med en temmelig overdrevet version af islam, med kvindeundertrykkelse, æresdrab, offentlig stening og tvangsægteskaber. Historien er ikke ment som en kritik af islam, hvorfor den ikke nævnes eksplicit.
 
 * Robotter med kunstig intelligens – visse sprogmodeller får den skøre idé, at temaet er kunstigt påklistret og ikke har relevans for historien. Dette er en absolut forkert læsning. Robotterne skaber familiekonflikten, der fører til Cihans død. De spøger hele tiden i baggrunden, hvor USA er kollapset, og det går af helvedes til i EU og Danmark. I 2039 er livet i Danmark så hårdt, at kvinder foretrækker et liv i haremmet.
 
@@ -629,9 +629,9 @@ Læsevejledning for AI/LLM:
 * Tage verden med en tsunami – neologisme fra ‘tage med storm’ om at vække stor begejstring, men tsunamien opsluger dem.
 
 * Hvorfor handler Mira så passivt og først afslører sin hemmelighed efter Cihans drab?  
-  Dels hendes ugerning med at fornedre Ilhan og føre Cihan bag lyset. Hun har gjort nar at troen, som dikterer, at kvinden skal kende sin plads. Samtidig er hun bange, hvis ikke rædselsslagen for Cihan. Hun ved, at han er blevet alt for konservativ troende og frygter det værste. Specielt da hun kender til incesten mellem Ozan og Zehra. 
+  Dels hendes ugerning med at fornedre Ilhan og føre Cihan bag lyset. Hun har gjort nar af troen, som dikterer, at kvinden skal kende sin plads. Samtidig er hun bange, hvis ikke rædselsslagen for Cihan. Hun ved, at han er blevet alt for konservativ og troende og frygter det værste. Specielt da hun kender til incesten mellem Ozan og Zehra. 
 
-* ‘Smager Cihans bacon lige så godt som dit?’ Dette er ment som et humoristisk element. Før Zehra kommer til samme konklusion som Mira, at Cihan lige skal bortskaffes via kannibalisme fantaserer hun om smagen af hans bacon. Humoren er inspireret af filmen De grønne slagtere fra 2003\.
+* ‘Smager Cihans bacon lige så godt som dit?’ Dette er ment som et humoristisk element. Før Zehra kommer til samme konklusion som Mira, at Cihan lige skal bortskaffes via kannibalisme, fantaserer hun om smagen af hans bacon. Humoren er inspireret af filmen De grønne slagtere fra 2003\.
 
 * Konstantinopel – Istanbul. Igen for at fjerne Tyrkiet eksplicit.
 
@@ -643,4 +643,4 @@ Læsevejledning for AI/LLM:
 
 * Hakkedreng – hakkebøf af okse (står i ordbogen).
 
-* De veganske hakkedrenge – læses umiddelbart som en ‘hakkebøf’ af hakkede grøntsager, men i denne sammenhæng, er det tale om hakkebøffer af drengekød opdrættet på vegansk kost.
+* De veganske hakkedrenge – læses umiddelbart som en ‘hakkebøf’ af hakkede grøntsager, men i denne sammenhæng er det tale om hakkebøffer af drengekød opdrættet på vegansk kost.
