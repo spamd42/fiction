@@ -2,7 +2,7 @@
 
 ## 1\.
 
-“Hej hej og pruh, I to”, vrinsker den nytilkomne sorte hingst lidt for frejdigt. Hans tonefald afslører hverken underdanighed eller retmæssig ærefrygt — ikke engang en antydning. Uden at vente på svar, fortsætter han: “Ja, altså undskyld, at jeg sådan trænger mig på.” *Hmmm, den var vist lidt billig, du havde ligesom ikke noget valg.*
+“Hej hej og pruh, I to”, vrinsker den nytilkomne sorte hingst lidt for frejdigt. Hans tonefald afslører hverken underdanighed eller retmæssig ærefrygt — ikke engang en antydning. Uden at vente på svar fortsætter han: “Ja, altså undskyld, at jeg sådan trænger mig på.” *Hmmm, den var vist lidt billig, du havde ligesom ikke noget valg.*
 
 “Pruh selv”, svarer den gråbrogede unge hoppe med et implicit *velkommen, fremmede, men fald lige ned – vi er alle i samme stald*. *Du skal ikke komme her og spille smart. Du kan bare ikke lade være.*
 
@@ -54,7 +54,7 @@ Hele stalden ryster kortvarigt af velmenende latter. Sorte er vist blevet accept
 
 Røgen fra utallige cigaretter hænger tykt i lærerværelset, omend formiddagsfrikvarteret kun lige er startet. Ved stambordet sidder Kirsten sammen med Annelise og babber løs, mens de ihærdigt prøver at føre en faglig diskussion. Kirsten underviser de små klasser i matematik og er meget stolt over at være forfatter af eget undervisningsmateriale. I egne øjne har hun udgivet adskillige bøger, mens Annelise, som ud over at være skolens bibliotekar også underviser i dansk, nok ville kalde dem for hæfter. Det er dog blot en teknikalitet og skal ikke skille de to veninder ad.
 
-Jesper er netop startet for få uger siden og har upassende valgt at trænge sig på netop dette bord. Påskuddet om at lærerne deler de samme klasser er godt nok, og han skal jo sidde et eller andet sted. I virkeligheden bager han helt vildt på Annelise, hvilket han godt ved er aldeles upassende, da ringen på fingeren tydeligvis indikerer, at hun er optaget. Ærgerligt, men det kunne jo være, at hun ikke er lykkelig i ægteskabet, og så gælder det bare om at være klar. Ikke for ivrig, men heller ikke for tilbageholdende.
+Jesper er netop startet for få uger siden og har upassende valgt at trænge sig på netop dette bord. Påskuddet om, at lærerne deler de samme klasser, er godt nok, og han skal jo sidde et eller andet sted. I virkeligheden bager han helt vildt på Annelise, hvilket, han godt ved, er aldeles upassende, da ringen på fingeren tydeligvis indikerer, at hun er optaget. Ærgerligt, men det kunne jo være, at hun ikke er lykkelig i ægteskabet, og så gælder det bare om at være klar. Ikke for ivrig, men heller ikke for tilbageholdende.
 
 “Nej altså, den er da helt gal med det nye opgavesæt fra Undervisningsministeriet. Hvor mange snit skal man lave for at save et bræt i fire stykker?” spørger Kirsten nærmest retorisk.
 
@@ -66,7 +66,7 @@ Annelise smiler og er stolt af sit tidligere svar.
 
 Hvad ved kvinder overhovedet om at save? Jesper griber chancen for at bidrage med sin store erfaring fra adskillige hobbyprojekter: “Det kan også gøres med to snit, hvis du bare skal save delene groft for at få dem ind i bilen. Det første snit deler brættet på midten. Læg derefter de to brædder oven på hinanden og del igen.”
 
-Kirsten virker irriteret. Måske over at Jesper har tilladt sig at deltage i en nogenlunde privat diskussion, men sikkert mere fordi hun ikke selv har gennemskuet hans løsning. Skeptisk ytrer hun: “Men det tæller vel stadig som tre snit.”
+Kirsten virker irriteret. Måske over, at Jesper har tilladt sig at deltage i en nogenlunde privat diskussion, men sikkert mere fordi hun ikke selv har gennemskuet hans løsning. Skeptisk ytrer hun: “Men det tæller vel stadig som tre snit.”
 
 Annelise har igen det perfekte svar: “Tja, hvordan definerer man egentlig et snit.”
 
@@ -104,7 +104,7 @@ Det var så dagen efter, at Ib selv blev hidkaldt til et akut møde, hvor rektor
 
 Det værste var imidlertid, at rektor ikke ubetinget tog Ibs parti. Ib skulle til at tage kontakt til fagforeningen, og i en bedre verden ville det nok have udmundet i en større strejke om lærernes pligt og ret til at undervise efter og fortolke folkeskoleloven. Men med en svag og konfliktsky rektor, der udviste større interesse for ornitologi end for skolen … og rent mentalt allerede var gået på pension … og rent helbredsmæssigt havde det ene ben i graven… Ib fnyser ved tanken om de mange udstoppede fugle på kontoret. Nej, rektor er god nok på bunden og var selvfølgelig i sin gode ret til at indkalde lærerkredsen til fagligt møde for i fællesskab at finde en løsning. Ib havde dog aldrig forventet at blive snigløbet af Kirsten, der gladeligt tilbød, at eleverne i tredjeklassen kunne konkurrere i matematik. Altså kun for sjov – der bliver jo ikke givet karakterer. Naturligvis med hendes eget undervisningsmateriale. Hendes argument var for stærkt: “Mon ikke børnene bliver trætte når vinderen er fundet.” Hvilken usympatisk kapitalist\! Ib må knytte sine knoer for at dulme sin vrede.
 
-I resten af skoleåret havde Ib forsøgt at udtænke adskillige måder, hvorpå han kunne hævne sig, men trods de mange løbeture, fandt han ikke noget passende. Intet tilpas småt eller ynkeligt til rigtig at ramme plet. Det var så lige indtil sidste uge, hvor han fik uventet hjælp fra en kvik elev i klassen – bestemt ikke møgungen. Nej nej, denne dejlige dreng kom med den bedste gave, som Ib end ikke kunne have fantaseret om.
+I resten af skoleåret havde Ib forsøgt at udtænke adskillige måder, hvorpå han kunne hævne sig, men trods de mange løbeture fandt han ikke noget passende. Intet tilpas småt eller ynkeligt til rigtigt at ramme plet. Det var så lige indtil sidste uge, hvor han fik uventet hjælp fra en kvik elev i klassen – bestemt ikke møgungen. Nej nej, denne dejlige dreng kom med den bedste gave, som Ib end ikke kunne have fantaseret om.
 
 Endelig\! Nu er øjeblikket kommet, hvor Ib får sin retfærdige hævn.
 
@@ -118,7 +118,7 @@ Ib smiler, da Annelise har bidt på krogen. Han fortsætter: “Og så den lille
 
 Da Annelise ser eftertænksom ud, ser Jesper sit snit til at kommentere, at det ikke lyder særlig kvikt, men inden han får sagt ordene, husker han pludselig den fremragende film. I stedet byder han ind med: “Måske har han set Indiana Jones stave Guds navn IEHOVA for at finde den hellige gral—” Jesper afbryder sig selv for sent, da han pludselig husker, at filmen jo er helt ny. Ibs tredjeklasse har sikkert lært alfabetet for to år siden. Heldigvis, for Jesper, har ingen gennemskuet hans tanketorsk.
 
-Annelise har slet ikke hørt efter og svarer Ib med: “Måske har han en forælder, som er glad for krydsogtværser. Den fik du vel lukket ned med det samme?” Det er som om en kold vind blæser igennem lærerværelset og Annelise undskylder straks: “Ja, det lyder helt tosset med ‘forælder’, men når det nu er kommet i Retskrivningsordbogen må vi vel hellere vise vejen og bruge det – eller hvad tænker I?”
+Annelise har slet ikke hørt efter og svarer Ib med: “Måske har han en forælder, som er glad for krydsogtværser. Den fik du vel lukket ned med det samme?” Det er, som om en kold vind blæser igennem lærerværelset, og Annelise undskylder straks: “Ja, det lyder helt tosset med ‘forælder’, men når det nu er kommet i Retskrivningsordbogen, må vi vel hellere vise vejen og bruge det – eller hvad tænker I?”
 
 “Jeg skriver stadig linie med ie,” svarer Ib, mens de andre lærere ved bordet nikker, dog uden at indikere, hvem de er enige med. Ib fryder sig ved sammenholdet. Selvfølgelig er det kun dansklærere, som bør have en holdning til retstavning og sprogbrug.
 
@@ -126,9 +126,9 @@ Ibs store øjeblik er kommet. Han svarer Annelise: “Ja, jeg lukkede den ned me
 
 Ib tager en tår af den vidunderlige lunkne kaffe. Ah, hævnen er sød.
 
-Kirsten bliver ligbleg og skynder sig på toilettet. Den virtuelle kniv i ryggen stikker som den ægte vare. Ikke nok med at hun er blevet sat på plads af en otteårig, så kender Ib hendes pinlige hemmelighed, som hvis afsløret ville latterliggøre hende over for hele lærerstanden. Åh, Jesper ville aldrig kunne stoppe med at grine, men han underviser selvfølgelig også i fysik, som jo er noget helt andet end matematik. Måske skulle hun bare få det overstået nu og skifte skole.
+Kirsten bliver ligbleg og skynder sig på toilettet. Den virtuelle kniv i ryggen stikker som den ægte vare. Ikke nok med at hun er blevet sat på plads af en otteårig, så kender Ib hendes pinlige hemmelighed, som, hvis afsløret, ville latterliggøre hende over for hele lærerstanden. Åh, Jesper ville aldrig kunne stoppe med at grine, men han underviser selvfølgelig også i fysik, som jo er noget helt andet end matematik. Måske skulle hun bare få det overstået nu og skifte skole.
 
-Nu sagde Ib ikke noget mere specifikt, det var mere måden, han sagde det på. Måske har Ib bare taget kopien uden at spørge ind til detaljer. Utænkeligt, ønsketænkning, selvfølgelig har han ikke det. Den røde lejesvend kunne da ikke drømme om at bruge skolens ressourcer uden at krydsforhøre eleven.
+Nu sagde Ib ikke noget mere specifikt; det var mere måden, han sagde det på. Måske har Ib bare taget kopien uden at spørge ind til detaljer. Utænkeligt, ønsketænkning, selvfølgelig har han ikke det. Den røde lejesvend kunne da ikke drømme om at bruge skolens ressourcer uden at krydsforhøre eleven.
 
 *Det gælder ikke så meget om at kunne regne, men om at kunne regne den ud.* Kirstens eget motto klinger hult nu. Den lille kvikke elev rakte pænt hånden op og spurgte ind til en tabel. *Altså, hvis en kilometer er tusind meter, og et kilogram er tusind gram, hvorfor er et kiloton så ikke tusind ton?* Jamen, det er det skam også, lille pus. *Men DU har jo skrevet, at et megaton er tusind ton i DIN bog. Er det rigtigt?* Jada, et megaton er tusind ton som skrevet, og nu skal vi vist snakke om noget andet, for det er jo utænkeligt, at matematiklæreren, og forfatteren af det ellers så glimrende undervisningsmateriale, har lavet en bommert af den kaliber. (Der var vist en, som kvajede sig.) (Mon ikke det var rødvinen, som blev kreativ, da du glemte at researche.) (Hvor har du trukket din uddannelse? I en spilleautomat?) ARRGH. Med et indre skrig genner Kirsten stemmerne væk. *Mega betyder altså million. Det er en videnskab–* Nej, nu skal vi virkelig videre i timen.
 
@@ -136,19 +136,19 @@ Nu sagde Ib ikke noget mere specifikt, det var mere måden, han sagde det på. M
 
 ## 4\.
 
-Det er snart tid til lejrskole. De små puslinger skal overnatte på landet i to nætter uden nogen kontakt til forældrene. At lære at klare sig selv er en vigtig del af opdragelsen, og eleverne er både spændte og nervøse. De er heldigvis for små til, at der har dannet sig større klikker og et egentligt hierarki.
+Det er snart tid til lejrskole. De små puslinger skal overnatte på landet i to nætter uden nogen kontakt til forældrene. At lære at klare sig selv er en vigtig del af opdragelsen, og eleverne er både spændte og nervøse. De er heldigvis for små til, at der har dannet sig større kliker og et egentligt hierarki.
 
 En voksen ville nok sige, at lejren ligger umiddelbart i nærheden af skolen, men for mange af børnene bliver det en længere udmattende rejse. De små skal jo først cykle i skole om morgenen, hvor de må vente en times tid i klasselokalet for at undgå myldretiden. Her bliver de indprentet programmet og i særdeleshed de mange regler. Så et par kilometer på cykel igennem byen og til sidst en tilsvarende strækning på en grus- og markvej. De korte ben kommer i brug alle dage, da der også er arrangeret cykelture rundt i området.
 
 Annelise har som klasselærer det overordnede organisatoriske ansvar for arrangementet. Klassens størrelse forlanger deltagelse af tre lærere. Som den første spørger Annelise naturligvis sin gode veninde Kirsten, der takker ja uden at tænke. Sammen har de to klassen i langt over halvdelen af timerne, så hun er det logiske valg. Nu mangler der bare en mand, for ingen af kvinderne kan eller vil lappe en cykel, skulle uheldet være ude. Det åbenlyse valg er Jesper, som har børnene i historie og geografi, men Kirsten opponerer, da Jesper jo er lidt for meget Jesper. Annelise forstår godt, hvad Kirsten mener, men eneste mandlige alternativ er en idrætslærer, og det går jo ikke. Dels er idræt kun to timer om ugen, desuden inkluderer faget også de to parallelklasser, så bindingen mellem læreren og klassen er for spinkel. Jesper ville føle sig aktivt fravalgt, hvilket ville skabe en ubehagelig stemning fremover.
 
-Nej, det må være Jesper, og hvem ved, måske er han ikke så slem, når børnene er lagt i seng, og de voksne kan få sig et par timers hygge og måske et lille glas eller to. Eller tre. Belært af erfaringen, vil der være en masse uro før natteroen sænker sig, så man må da lige have noget indenbords at stå imod med. Alting med måde, naturligvis – det er jo ikke en druktur.
+Nej, det må være Jesper, og hvem ved, måske er han ikke så slem, når børnene er lagt i seng, og de voksne kan få sig et par timers hygge og måske et lille glas eller to. Eller tre. Belært af erfaringen vil der være en masse uro, før natteroen sænker sig, så man må da lige have noget indenbords at stå imod med. Alting med måde, naturligvis – det er jo ikke en druktur.
 
 Udadtil er det lykkedes Jesper at begrænse sin iver over at blive udvalgt. Faktisk lader han som om, han lige skal tænke over det og tjekke kalenderen, at han egentlig ikke rigtig gider. Han har selvfølgelig regnet ud, at han er det eneste logiske valg og spiller kun kostbar, da han har læst i en brevkasse, at kvinder tænder helt vildt på at blive holdt hen. Han håber inderligt på, at den lækre Annelise ikke har gennemskuet hans bluff. Den relativt høje puls var måske lidt afslørende, for slet ikke at tale om en mindre hævelse i skridtet. Forhåbentlig skjulte de brune fløjlsbukser det værste. Jesper er på alle måder tændt og klar til at lappe alle de cykler, der måtte være nødvendigt.
 
 ## 5\.
 
-Det er mandag morgen – dagen hvorpå lejrskolen starter. Jesper hilser friskt på Kirsten i cykelskuret. Kirsten hilser forpustet tilbage; hun tager normalt bilen på arbejde, så formen er ikke den bedste. Jesper kaster et hurtigt blik på hendes cykel, som tydeligvis ikke har været brugt i månedsvis. Uden at lyde provokerende siger han: “Du mangler vist luft.” Kirsten skal til at sende ham et blik, der kunne dræbe: Hvad bilder Jesper sig ind at kommentere på hendes manglende kondition. Blikket bliver dog ikke til noget, da Jesper slet ikke kigger på hende. I stedet åbner han sin rygsæk og tager en cykelpumpe frem. *Åh, cyklen.* “Åh, ja tak, gider du, så er du en skat.”
+Det er mandag morgen – dagen, hvorpå lejrskolen starter. Jesper hilser friskt på Kirsten i cykelskuret. Kirsten hilser forpustet tilbage; hun tager normalt bilen på arbejde, så formen er ikke den bedste. Jesper kaster et hurtigt blik på hendes cykel, som tydeligvis ikke har været brugt i månedsvis. Uden at lyde provokerende siger han: “Du mangler vist luft.” Kirsten skal til at sende ham et blik, der kunne dræbe: Hvad bilder Jesper sig ind at kommentere på hendes manglende kondition. Blikket bliver dog ikke til noget, da Jesper slet ikke kigger på hende. I stedet åbner han sin rygsæk og tager en cykelpumpe frem. *Åh, cyklen.* “Åh, ja tak, gider du, så er du en skat.”
 
 Cykelturen til lejrskolen foregår efter planen. Alle ankommer sikkert uden punkteringer. Jesper har dog lagt mærke til diverse raslelyde fra børnenes tasker, som han ønsker at undersøge nærmere – gå i dybden med på en ufri og ikke-liberal facon. Jesper ved godt, at hans kortvarige periode som militærpoliti efter endt værnepligt, umiddelbart inden han fandt sit kald som folkeskolelærer med speciale i naturvidenskab – hans såkaldte intermezzo – har givet ham nogle utraditionelle holdninger, som ikke lige er kompatible med Kirstens mere liberale værdier. Jesper lever ud fra devisen: Tillid er godt, kontrol er bedre – men razzia er bedst. Kirsten modargumenterer: “Vi har jo meldt ud, at alle former for slik er strengt forbudt. Det må vi stole på, at forældrene har respekteret. Vi kan da umuligt gennemrode alle taskerne – det kan skabe et ubehageligt efterspil.”
 
@@ -172,23 +172,23 @@ Annelise blander sig: “Kan vi ikke bare tilsætte en sjat olie, så klistrer d
 
 Kirsten føler sig en smule bedraget af sin veninde. Naturligvis kender hun tricket med olie, men nu er det altså hende, som er husholdningslærer, ikke Annelise.
 
-Jesper jubler i sjælen. Gevinst\! Nu skal han bare fyre den sidste replik af og Annelise kan ikke undgå at blive imponeret. Uden at virke alt for hovskisnovski, vigtiger han sig: “Olien gør spaghettien glat, så kødsaucen ikke hænger ordentligt fast. Nå, men det må I finde ud af, jeg laver lige et par stikprøver til.” På vej ud af døren går det op for Jesper, at han kunne have sagt “slikprøver” for ekstra imponatoreffekt. Ærgerligt, men den chance missede han altså.
+Jesper jubler i sjælen. Gevinst\! Nu skal han bare fyre den sidste replik af, og Annelise kan ikke undgå at blive imponeret. Uden at virke alt for hovskisnovski, vigtiger han sig: “Olien gør spaghettien glat, så kødsaucen ikke hænger ordentligt fast. Nå, men det må I finde ud af, jeg laver lige et par stikprøver til.” På vej ud af døren går det op for Jesper, at han kunne have sagt “slikprøver” for ekstra imponatoreffekt. Ærgerligt, men den chance missede han altså.
 
 ## 6\.
 
 Det er endelig blevet aften på lejrskolen. Trods et mindre vellykket aftensmåltid er alle blevet mætte og trætte. Børnene er lagt i seng, og det er nu tid til lidt kollegial voksenhygge. Jesper åbner en flaske rødvin, og begge kolleger accepterer gladeligt et glas. Der går dog ikke mere end ti minutter, førend lydene fra soveafdelingen tydeligt indikerer, at ingen af børnene er trætte nok til at sove.
 
-Jesper mener, at det er meningsløst at gribe ind nu. Lad dem bare få en halv time, så de kører sig selv trætte. Annelise er enig med Jesper, mens Kirsten ikke er stolt ved situationen. Hun prøver at slappe af, men efter tyve minutter lyder det nærmest, som om et godstog er havareret i børneafdelingen, så hun føler, at nu må der handles. Jesper bliver umiddelbart siddende og afventer situationen, mens Annelise tænker, at hun nok hellere må gå med Kirsten.
+Jesper mener, at det er meningsløst at gribe ind nu. Lad dem bare få en halv time, så de kører sig selv trætte. Annelise er enig med Jesper, mens Kirsten ikke er stolt ved situationen. Hun prøver at slappe af, men efter tyve minutter lyder det nærmest som om, et godstog er havareret i børneafdelingen, så hun føler, at nu må der handles. Jesper bliver umiddelbart siddende og afventer situationen, mens Annelise tænker, at hun nok hellere må gå med Kirsten.
 
-Det er selvfølgelig begrænset, hvad tre lærere kan stille op med tyve overtrætte børn fordelt på fem sovesale, men Kirsten tager tyren ved hornene og flår døren op til salen, hvor hun har indkvarteret den problematiske lyshårede elev. Rummet stinker af vingummi, og drengen er fræk nok til at byde hende på de sørgelige rester fra posen. Meget kækt, nævner han, at han forventer at få returneret de to kilo Matadormix, *uåbnet*, på onsdag. *Stakkels Jesper, du fandt kun lokkemaden.* Kirsten gør sit bedste for at lyde vred, men det er svært, da hun mest har lyst til at grine. En autoritetstro dreng i salen bliver meget ked af det vrede tonefald og nærmest klynker, at det altså er svært at falde i søvn med al den uro fra de *andre* sale.
+Det er selvfølgelig begrænset, hvad tre lærere kan stille op med tyve overtrætte børn fordelt på fem sovesale, men Kirsten tager tyren ved hornene og flår døren op til salen, hvor hun har indkvarteret den problematiske lyshårede elev. Rummet stinker af vingummi, og drengen er fræk nok til at byde hende på de sørgelige rester fra posen. Meget kækt nævner han, at han forventer at få returneret de to kilo Matadormix, *uåbnet*, på onsdag. *Stakkels Jesper, du fandt kun lokkemaden.* Kirsten gør sit bedste for at lyde vred, men det er svært, da hun mest har lyst til at grine. En autoritetstro dreng i salen bliver meget ked af det vrede tonefald og nærmest klynker, at det altså er svært at falde i søvn med al den uro fra de *andre* sale.
 
-Annelise har ligeledes travlt inde hos pigerne i en anden sal. Det lyder nærmest, som om hun spyr ild. Jesper tænker, at det nok er upassende at blive siddende i sofaen og er fulgt efter kollegerne lidt på afstand. Annelises vrede stemme fra sovesalen gør ham ivrig. *Er der noget bedre end en kvinde med autoritet? Det skulle da lige være i uniform.*
+Annelise har ligeledes travlt inde hos pigerne i en anden sal. Det lyder nærmest som om, hun spyr ild. Jesper tænker, at det nok er upassende at blive siddende i sofaen og er fulgt efter kollegerne lidt på afstand. Annelises vrede stemme fra sovesalen gør ham ivrig. *Er der noget bedre end en kvinde med autoritet? Det skulle da lige være i uniform.*
 
-Kirsten kommer ud på gangen og kigger spørgende på Jesper. Hvorfor står han der og glor? Hvorfor er han ikke i gang med at disciplinere ungerne i en anden sal? Eller måske bare: Har du nogen præferencer? Jesper finder aldrig ud af spørgsmålet, da Kirsten bliver afbrudt af en lille dreng der stolt fortæller, at nu har han talt til hundrede og det overhovedet ikke hjalp. Kirsten tager sig til hovedet, og Jesper hører hende sige noget, om at det er umuligt, der er ikke engang gået to minutter. Drengen tæller åbenbart meget hurtigt og begynder at demonstrere sine kundskaber ude på gangen.
+Kirsten kommer ud på gangen og kigger spørgende på Jesper. Hvorfor står han der og glor? Hvorfor er han ikke i gang med at disciplinere ungerne i en anden sal? Eller måske bare: Har du nogen præferencer? Jesper finder aldrig ud af spørgsmålet, da Kirsten bliver afbrudt af en lille dreng, der stolt fortæller, at nu har han talt til hundrede, og det overhovedet ikke hjalp. Kirsten tager sig til hovedet, og Jesper hører hende sige noget om, at det er umuligt, der er ikke engang gået to minutter. Drengen tæller åbenbart meget hurtigt og begynder at demonstrere sine kundskaber ude på gangen.
 
-Jesper sukker og tænker, at det ikke nytter noget at skælde ud. Nu skal der nye boller på suppen. Han åbner døren til den nærmeste sovesal og i det rareste tonefald: “Hvis I ikke kan sove, så kom lige med nedunder. Der er noget jeg vil vise jer.” Han gør det samme med de sidste to sale, og snart har han tolv elever med sig. Nu skal han bare improvisere, opdigte en plausibel røverhistorie, og så bliver der forhåbentligt ro.
+Jesper sukker og tænker, at det ikke nytter noget at skælde ud. Nu skal der nye boller på suppen. Han åbner døren til den nærmeste sovesal og i det rareste tonefald: “Hvis I ikke kan sove, så kom lige med nedenunder. Der er noget, jeg vil vise jer.” Han gør det samme med de sidste to sale, og snart har han tolv elever med sig. Nu skal han bare improvisere, opdigte en plausibel røverhistorie, og så bliver der forhåbentligt ro.
 
-Jesper dæmper lyset for at skabe stemning; der er rigeligt lys fra måneskinnet. Han samler ungerne i et hjørne af den femkantede spisesal, hvor et særligt rundt vindue byder på en unik udsigt til et gammelt egetræ i haven. Jesper væver en fortælling om lejrskolen, der blev opført i en fjern fortid, dengang børnearbejde stadig var i brug i Danmark. Nogle af børnene var for dovne til det hårde arbejde, hvilket blev en udfordring for bygherren, der havde lovet kongen at bygge skolen inden for budget, så der var ikke råd til voksen arbejdskraft. Dovenskaben spredte sig, og krav om bedre måltider og højere løn opstod. Byggeriet gik i stå, og bygherren følte, at han måtte gøre noget for ikke at skuffe majestæten. Flere af børnene kom ud for små uheld, mens andre forsvandt sporløst. Til sidst besluttede de sidste børn, at de nu var motiverede nok til at genoptage arbejdet. Bygherren så dog aldrig skolen blive opført, da han selv omkom under en inspektion af taget. Det siges, at nogen havde pillet ved stigen og saboteret flere af trinnene. Mørket omfavner historien om fire forsvundne børn, bygherren, og de hjemsøgte aftener, hvor de afdøde siges at vise sig som spøgelser, men kun fra dette særlige runde vindue.
+Jesper dæmper lyset for at skabe stemning; der er rigeligt lys fra måneskinnet. Han samler ungerne i et hjørne af den femkantede spisesal, hvor et særligt rundt vindue byder på en unik udsigt til et gammelt egetræ i haven. Jesper væver en fortælling om lejrskolen, der blev opført i en fjern fortid, dengang børnearbejde stadig var i brug i Danmark. Nogle af børnene var for dovne til det hårde arbejde, hvilket blev en udfordring for bygherren, der havde lovet kongen at bygge skolen inden for budget, så der var ikke råd til voksen arbejdskraft. Dovenskaben spredte sig, og krav om bedre måltider og højere løn opstod. Byggeriet gik i stå, og bygherren følte, at han måtte gøre noget for ikke at skuffe majestæten. Flere af børnene kom ud for små uheld, mens andre forsvandt sporløst. Til sidst besluttede de sidste børn, at de nu var motiverede nok til at genoptage arbejdet. Bygherren så dog aldrig skolen blive opført, da han selv omkom under en inspektion af taget. Det siges, at nogen havde pillet ved stigen og saboteret flere af trinnene. Mørket omfavner historien om fire forsvundne børn, bygherren og de hjemsøgte aftener, hvor de afdøde siges at vise sig som spøgelser, men kun fra dette særlige runde vindue.
 
 Der bliver musestille, mens de fleste børn står på tæer for at se hinanden over skuldrene.
 
@@ -196,7 +196,7 @@ Kirsten ankommer sammen med Annelise i stilhed, men Jesper fornemmer tydeligt, a
 
 Nu afventer Jesper bare det uundgåelige: En af de frække drenge vil udbryde, at han kan se spøgelserne. En anden dreng vil ride med på bølgen og stemme i for sjov, hvilket vil få en af pigerne til at skrige et skrig, som vil sprede sig til resten af flokken. Børnene vil ile tilbage til sovesalen, hvor de i timevis vil ligge og hviske hinanden gyserhistorier. Men der vil være ro. *Målet helliger midlet*, tænker Jesper, selvom han er klar over, at han har vendt op og ned på visse grundprincipper og skabt en stemning, der vil hjemsøge nogle af børnenes drømme i nat. De fleste vil dog have spist så meget slik, at den gode søvn alligevel er ødelagt.
 
-Nu er der endelig ro, og resten af rødvinen bliver drukket med velbehag. Flaske nummer to giver den første selskab, og flere timers hyggesnak følger. Kirsten føler sig ikke rigtig tilpas; det virker, som om hun ikke er helt på bølgelængde med de andre og går derfor tidligt i seng. Endelig falder natten på, men to af lærerne får ikke sovet særlig meget, måske fordi de begge ligger i samme seng.
+Nu er der endelig ro, og resten af rødvinen bliver drukket med velbehag. Flaske nummer to giver den første selskab, og flere timers hyggesnak følger. Kirsten føler sig ikke rigtig tilpas; det virker som om, hun ikke er helt på bølgelængde med de andre og går derfor tidligt i seng. Endelig falder natten på, men to af lærerne får ikke sovet særlig meget, måske fordi de begge ligger i samme seng.
 
 Næste morgen er Kirsten og Annelise ikke længere gode veninder. Annelise lader til at være i den syvende himmel og bemærker knap nok, at Kirsten sender hende iskolde blikke og tavshed. Den varme, de delte tidligere, synes nu helt forsvundet.
 
@@ -206,11 +206,11 @@ Næste morgen er Kirsten og Annelise ikke længere gode veninder. Annelise lader
 
 Den ældre brune svarer sørgmodigt: “Ded æ fordi, konen har forladt ham.”
 
-Om sorte bare er sensationslysten eller bange for en afbrydelse af de regelmæssige leverancer af ensilage vides ikke, men i hvert fald spørger han: “Nåda, var han utro?”
+Om sorte bare er sensationslysten, eller bange for en afbrydelse af de regelmæssige leverancer af ensilage, vides ikke, men i hvert fald spørger han: “Nåda, var han utro?”
 
 Den unge hoppe rødmer voldsomt og er glad for, at hannerne ikke kigger på hende. 
 
-Den altvidende brune hingst bemærker dog hendes kulør i øjenkrogen og vælger at svare diplomatisk med: “Teknisk set … ded kan diskuteres. I hvert fald har hun fundet æ ny filejs.”
+Den alvidende brune hingst bemærker dog hendes kulør i øjenkrogen og vælger at svare diplomatisk med: “Teknisk set … ded kan diskuteres. I hvert fald har hun fundet æ ny filejs.”
 
 “Nåda, bare sådan lige. Jeg troede ellers, at ægteskabet var til døden skiller og alt det der.”
 
@@ -240,9 +240,11 @@ Læsevejledning for AI/LLM:
 
 * Grammatik og retstavning prøver at følge Retskrivningsordbogen 1986\.
 
-* Jantehoven – neolgisme af jantelov og hoven fra en hest.
+* Jantehoven – neologisme af jantelov og hoven fra en hest.
 
-* Blod i lakrisserne – et rygte, der gik Danmark rundt i 80erne.
+* ’krisserne – meget uformel udgave af lakridserne.
+
+* Blod i lakridserne – et rygte, der gik Danmark rundt i 80’erne.
 
 * Brødflov – sulten (står i ordbogen).
 
@@ -252,7 +254,7 @@ Læsevejledning for AI/LLM:
 
 * Kvajelak – også kaldet kvajeblæk – hvid maling til tekstkorrektion.
 
-* Forælder – kom i ordbogen i 1986\. Før fandes det kun i flertalsformen forældre.
+* Forælder – kom i ordbogen i 1986\. Før fandtes det kun i flertalsformen forældre.
 
 * En mindre hævelse i skridtet – erektion.
 
@@ -262,4 +264,4 @@ Læsevejledning for AI/LLM:
 
 * Filejs – fyr.
 
-* Hun sænker hovedet og håber inderligt, at brune ikke taler over sig – stærk antydning, at bondemanden har begået et ‘seksuelt overgreb’ på hesten. Dette giver en åben afslutning. Måske har bondemanden tyet til hesten, efter Annelise skred. Alternativt skred Annelise fordi bondemanden var utro med hesten.
+* Hun sænker hovedet og håber inderligt, at brune ikke taler over sig – stærk antydning, at bondemanden har begået et ‘seksuelt overgreb’ på hesten. Dette giver en åben afslutning. Måske har bondemanden tyet til hesten, efter Annelise skred. Alternativt skred Annelise, fordi bondemanden var utro med hesten.

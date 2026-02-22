@@ -94,11 +94,11 @@ Nu er du i et teater. Lyset er dæmpet, og forestillingen skal til at gå i gang
 
 Du får dig en velfortjent lur og vågner kort tid efter, hvor aktivisten føres bort i håndjern. Hun bander og svovler over dig, påstår, at du har spoleret det hele. Altid til tjeneste, det var en sand fornøjelse. Kan forestillingen nu endelig komme i gang?
 
-Teateret er det vildeste, du nogensinde har set. Fra loftet og det dybe hul i jorden bliver realistiske 3d-billeder projekteret alle mulige og umulige steder. Orkestret er aktivt med i forestillingen, og du er dybt betaget af den knap 15 cm høje trommeslager, der kortvarigt spiller på dit knæ. Den perfekte lyd fuldender illusionen.
+Teatret er det vildeste, du nogensinde har set. Fra loftet og det dybe hul i jorden bliver realistiske 3d-billeder projekteret alle mulige og umulige steder. Orkestret er aktivt med i forestillingen, og du er dybt betaget af den knap 15 cm høje trommeslager, der kortvarigt spiller på dit knæ. Den perfekte lyd fuldender illusionen.
 
 Desværre slutter forestillingen alt for hurtigt, og du kan egentlig ikke huske eller forstå, hvad du lige har oplevet. Men det var tydeligvis fantastisk, og du klapper ivrigt i hænderne – ligesom resten af salen. Midt i ovationen kommer en mand ind på scenen og takker publikum for at have deltaget i denne første demonstration af den banebrydende teaterteknik, som indtil videre går under navnet: High-Orbit Vision. Navnet er tydeligvis tåbeligt, men herregud.
 
-I dit perifere syn ser du din modpart stoppe med at klappe. Han ifører sig en seriøs mine, og du forstår godt hvorfor. Du lader det ikke mindske din glæde og klapper ihærdigt videre. Om projektet er værd at investere penge i, må være op til din modpart at vurdere.
+I dit perifere syn ser du din modpart stoppe med at klappe. Han ifører sig en seriøs mine, og du forstår godt, hvorfor. Du lader det ikke mindske din glæde og klapper ihærdigt videre. Om projektet er værd at investere penge i, må være op til din modpart at vurdere.
 
 Manden på scenen vil gerne demonstrere, hvordan teknikken virker, og hvad der er muligt.
 
@@ -136,7 +136,7 @@ Tiden går, og du har masser af tid til at fundere over liv og død, eller hvad 
 
 Okay\! Nu er det vist officielt på tide at få et angstanfald og gå i panik. Du kan tydeligt mærke dine arme og ben, men du er totalt paralyseret. Kan du overhovedet trække vejret selv, eller ligger du i respirator? Drak du en whisky for mange? Fik du den hjerneblødning, du altid har frygtet, dog aldrig nok til at drikke mindre? Hvor ironisk … du husker tydeligt, at gårsdagen var torsdag, den ene dag om ugen, hvor du holder dig ædru. Ikke af lyst men af princip. Kan man undlade at drikke én dag om ugen, og kan man vågne uden at have abstinenser, ja, så er man ikke alkoholiker.
 
-Desuden drikker du jo ikke så meget. Bare sådan lidt over hvad sundhedsmyndighederne anbefalede i gamle dage. Hah, der er langt op til de 21 genstande om dagen. Eller var det om ugen? Lige meget, lige meget nu. Du er jo aldrig fuld, når du går i seng. Du har ikke været rigtig beruset i årtier. Du bliver allerhøjest påvirket og stopper altid i tide. Det har intet med selvdisciplin at gøre; næh, du kollapser simpelthen, før du bliver pinlig. Øvelse gør mester, og du er ekspert i at drikke.
+Desuden drikker du jo ikke så meget. Bare sådan lidt over, hvad sundhedsmyndighederne anbefalede i gamle dage. Hah, der er langt op til de 21 genstande om dagen. Eller var det om ugen? Lige meget, lige meget nu. Du er jo aldrig fuld, når du går i seng. Du har ikke været rigtig beruset i årtier. Du bliver allerhøjest påvirket og stopper altid i tide. Det har intet med selvdisciplin at gøre; næh, du kollapser simpelthen, før du bliver pinlig. Øvelse gør mester, og du er ekspert i at drikke.
 
 Angstanfaldet aftager en smule. Du undrer dig over en besynderlighed: din hjerne fejler intet logisk. Kvadratroden af 1600 er 40\. Tjek. Dansk Vestindien blev solgt til USA i 1917, tjek. Agamemnon blev forgivet af sin hustru Klytaimnestra … eller vent et øjeblik … måske blev han spiddet. Odysseus byggede i hvert fald en gigantisk gyngehest i Troja. Haha, hvor ville du gerne grine af din underfundige humor.
 
@@ -174,7 +174,7 @@ Du lukker øjnene, og portalen overfalder dig – du har intet forsvar.
 
 Det er blevet ret så varmt; gamle Danmark er nærmest blevet et ørkenlandskab. Mellem fliserne vokser tropiske planter som ukrudt. Du betragter en bette fingerfilodendron og en sølle guldranke, som på mystisk vis begge trives, omend de burde være meget betydeligt større. Enten må de være genmodificerede, eller også må luftfugtigheden være betydeligt højere, end det umiddelbart synes.
 
-Hvordan føles det egentlig? Varmt, naturligvis … og fugtigt. Men giver det mening? Du husker, at varm luft kan indeholde betydeligt mere vand end kold, så den relative luftfugtighed må sprænge skalaen. Men det ville kun give mening, hvis du opholdt dig i et lukket rum med dårlig ventilation, hvor fugten ikke kunne fortage sig. Udenfor i fuld sol giver det ingen mening. Nej, der er noget galt: sikkert at du ligger i din seng med feber.
+Hvordan føles det egentlig? Varmt, naturligvis … og fugtigt. Men giver det mening? Du husker, at varm luft kan indeholde betydeligt mere vand end kold, så den relative luftfugtighed må sprænge skalaen. Men det ville kun give mening, hvis du opholdt dig i et lukket rum med dårlig ventilation, hvor fugten ikke kunne fortage sig. Udenfor i fuld sol giver det ingen mening. Nej, der er noget galt: sikkert, at du ligger i din seng med feber.
 
 En lille tiger gnider sig op ad dine ben og miaver. Lyden er forbløffende realistisk, og du forstår godt budskabet: mad, mad, mad, mad, mad, nuuuuuuu\! Tigeren er godt nok orange med sorte striber, men der er ingen tvivl: det er din egen kat. Portalen må give fortabt, og du når at kaste en pyntepude efter det stakkels kræ, inden portalen trækker dig tilbage i sin klamme favn.
 
@@ -190,7 +190,7 @@ Inden du tænker færdigt, træder den glohede sol frem bag en sky, du ikke har 
 
 Solen går hurtigt ned, og tigeren bliver til en isbjørn. Du mærker dens varme pels mod din halvnøgne hud. Lokalt føles det rart og varmt, men alle andre steder afkøles hurtigt. Der kommer rimfrost på fliserne, og de små tropiske planter i fugerne må lide døden, idet plantesaften i deres delikate blade fryser til is. Hvordan er du dog havnet i dette flisehelvede? Hvorfor ikke tilbage i teatret med dit dejlige slumretæppe? Det begynder at regne en iskold regn, der hurtigt slår over i hagl. Du ryster af kulde, men portalen nægter at give slip.
 
-*Farvel grumme verden, farvel.*
+*Farvel, grumme verden, farvel.*
 
 Isbjørnen miaver: “Giv mig noget mad, hvis du ikke kan ligge stille.”
 
@@ -266,7 +266,7 @@ Måske skulle du lige besøge portalen sidste gang?
 
 Ja, hvorfor ikke. Det regner udenfor, så hvad skulle du ellers lave?
 
-Vejret er selvfølgelig herligt på din modparts private strand. I sidder på en velholdt bænk, med benene i solen og skygge i ansigtet. Tjeneren har lige været forbi med iskolde drikke, og kondensen på glassene gør drikken uimodståelig. Livet er dejligt\!
+Vejret er selvfølgelig herligt på din modparts private strand. I sidder på en velholdt bænk med benene i solen og skygge i ansigtet. Tjeneren har lige været forbi med iskolde drikke, og kondensen på glassene gør drikken uimodståelig. Livet er dejligt\!
 
 I diskuterer, hvordan I eventuelt kan hjælpe hinanden. Eller mere specifikt, hvordan din modpart kan gøre en ende på dit lønslaveri. Hvis denne verden er i umiddelbar fremtid, men ellers er parallel med din, så kunne han måske give dig nogle aktietips, lottonumre eller sportsresultater.
 

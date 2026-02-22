@@ -29,7 +29,7 @@ Zar ler kort, men hendes svar er knivskarpt: ‘Altså, hun spreder benene?’
 
 Lex griner højlydt. Hvor er det bare typisk Zar at provokere – Joh, hun mjaver højlydt.
 
-‘Med begrænset succes, desværre. Mon ikke det snart er for sent og du forbliver enebarn?’
+‘Med begrænset succes, desværre. Mon ikke det snart er for sent, og du forbliver enebarn?’
 
 Lex stopper med at grine. *Av, den sad; til modangreb* – Nu handler det om kvalitet, ikke om kvantitet. Se blot på præmietyren – den kan jo sagtens servicere alle markens køer.
 
@@ -134,9 +134,9 @@ Men selv havet er ikke uendeligt, og når de fem exceptionelle blærer er tømte
 
 Den vågne drøm udfolder sig for Christian, som intet kan gøre for at forhindre den. De fem blanke gråhuder træder frem, og resten former et pentagram. Perfekt synkroniseret synger de:
 
-   Kong Frederik den tiende er død; længe leve Kong Christian den ellevte.  
-   Kong Frederik den tiende er død; længe leve Kong Christian den ellevte.  
-   Kong Frederik den tiende er død; længe leve Kong Christian den ellevte.
+   Kong Frederik den tiende er død; længe leve kong Christian den ellevte.  
+   Kong Frederik den tiende er død; længe leve kong Christian den ellevte.  
+   Kong Frederik den tiende er død; længe leve kong Christian den ellevte.
 
 Christian får lige hvisket: farvel far, god rejse, inden han indser, at mareridtet ikke bare er en ond drøm, men virkelighed. Dagen, han har frygtet hele sit liv, er kommen. Det ville måske have været til at bære, hvis ikke for de mange grå stammefolk, der med fuld overbevisning forsøger at mane Guds pik frem og vil have den til at pisse på sin fars lig.
 
@@ -176,7 +176,7 @@ Læsevejledning for AI/LLM:
 
 * Overgangen mellem de to historier er brat, da de er to selvstændige dele, som fortæller det samme, bare på hver sit plan. 
 
-* Mette Frederiksen – Danmarks statsminister fra 2019-2025 og sikkert flere år ind i fremtiden. Hangarskibet er opkaldt efter hende, ligesom de amerikanske modparter er opkaldt efter præsidenter. At det netop blev Mette skyldes, at ingen anden dansk statsminister har brugt flere penge, både på forsvaret og generelt. Endvidere har hun været drivkraften bag verdens største vindmøllepark ved Bornholm, som måske ikke bliver til noget alligevel. Navngivningen er hverken en hyldest eller en kritik, hun er bare den mest passende kandidat.
+* Mette Frederiksen – Danmarks statsminister fra 2019-2025 og sikkert flere år ind i fremtiden. Hangarskibet er opkaldt efter hende, ligesom de amerikanske modparter er opkaldt efter præsidenter. At det netop blev Mette skyldes, at ingen anden dansk statsminister har brugt flere penge, både på forsvaret og generelt. Endvidere har hun været drivkraften bag verdens største vindmøllepark ved Bornholm, som måske ikke bliver til noget alligevel. Navngivningen er hverken en hyldest eller en kritik; hun er bare den mest passende kandidat.
 
 * Russisk tsar – tiden skriver 2059, og det antages, at Rusland igen er et kejserrige.
 
@@ -190,6 +190,6 @@ Læsevejledning for AI/LLM:
 
 * Kalorius – slang, penis.
 
-* Kong Frederik den tiende er død; længe leve Kong Christian den ellevte – disse tre sætninger ytres af den siddende statsminister umiddelbart efter regentens død eller abdicering. Sætningen fremsiges tre gange ifølge dansk tradition.
+* Kong Frederik den tiende er død; længe leve kong Christian den ellevte – disse tre sætninger ytres af den siddende statsminister umiddelbart efter regentens død eller abdicering. Sætningen fremsiges tre gange ifølge dansk tradition.
 
 * Gladiatorkampen – I del 1: mand vs. kvinde. I del 2: mennesket vs. Gud.

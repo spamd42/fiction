@@ -32,7 +32,7 @@ Uventet byder hun det ene glas og henvender sig smilende: Halløjsa, du ville ha
 
 ## 2\.
 
-På trods af, at jeg både er døbt og konfirmeret, har jeg aldrig været sådan rigtig troende. Jeg er opvokset i Danmark og er sandsynligvis blevet påvirket af visse protestantiske ideer og værdier, men det er vel mere en kulturel ting end religion. Altså, at være dansk med hygge, janteloven og hele pivtøjet.
+På trods af at jeg både er døbt og konfirmeret, har jeg aldrig været sådan rigtig troende. Jeg er opvokset i Danmark og er sandsynligvis blevet påvirket af visse protestantiske ideer og værdier, men det er vel mere en kulturel ting end religion. Altså, at være dansk med hygge, janteloven og hele pivtøjet.
 
 Jeg husker tydeligt min konfirmation. Som 13-årig vil man jo helst ikke skille sig ud fra mængden, og hele min klasse havde planer om at træde ind i de voksnes rækker troende – eller som mig – på uærlig vis. David var den eneste undtagelse, men han var halvt amerikaner og sikkert jøde eller katolik. Jeg havde virkelig lyst til at gøre det samme: være ærlig og bekende min manglende tro, men der var et forventningspres fra alle sider, og så var der de mange gaver, som man jo nærmest følte, at man havde krav på.
 
@@ -134,7 +134,7 @@ Det må betyde, at den ufødte ikke længere er sådan, og vi kan snart afvente,
 
 Ravnen lander ved siden af vores hoved og forsøger at kommunikere. Ravne er særdeles kvikke væsener, og vi forstår straks budskabet: “Min Herre sender de varmeste hilsner.”
 
-Endnu en ravn træder frem på den falske himmel. Den flyver lidt besværet, da den har et kæmpe øje i næbbet. Yderst forsigtigt for ikke at beskadige øjet lander den.
+Endnu en ravn træder frem på den falske himmel. Den flyver lidt besværet, da den har et kæmpe øje i næbbet. Yderst forsigtigt, for ikke at beskadige øjet, lander den.
 
 ## 6\.
 
@@ -152,7 +152,7 @@ Vores fremsyn fortalte os, at opsprætningen af lillebrors mave ville blive brut
 
 Vi forudså endvidere, at historien kunne gentage sig. Vores nevø ville kun dele magten med sine rivaliserende søskende kortvarigt; herefter ville han blive skinsyg, ligesom sine forfædre, og regere enevældigt, indtil hans egen søn, engang i fremtiden, pillede ham ned fra tronen.
 
-Moder havde jo født mange børn af Fader, og vi havde mange søskende, som vi, grundet den store sten, aldrig havde mødt. Den enøjede med de to ravne var en af disse – en ældre lillebror, som havde levet i skyggen hele sit liv. Sulten efter sin bid af kagen og magten havde han rejst langt for at besøge Fader, for at forstå *skaberkraftens mysterium*. Der var imidlertid ingen hjælp at hente, thi kun Moder besad denne hemmelighed. Hun var imidlertid blevet sær, og hendes kreationer levede alle miserable liv uden mening.
+Moder havde jo født mange børn af Fader, og vi havde mange søskende, som vi, grundet den store sten, aldrig havde mødt. Den enøjede med de to ravne var en af disse – en ældre lillebror, som havde levet i skyggen hele sit liv. Sulten efter sin bid af kagen og magten havde han rejst langt for at besøge Fader og forstå *skaberkraftens mysterium*. Der var imidlertid ingen hjælp at hente, thi kun Moder besad denne hemmelighed. Hun var imidlertid blevet sær, og hendes kreationer levede alle miserable liv uden mening.
 
 Dog havde han arvet Moders stædighed, og efter at have plaget hende i årtier, gav hun efter og fortalte den enøjede – altså dengang havde han stadig begge øjne – om sin storebror af en krøbling med den uklippede navlestreng. Hun berettede også om sine første kreationer og deres afhængighed af udvekslingen med Faders gasser – de gode gamle dage.
 
@@ -172,7 +172,7 @@ Jeg føler mig dybt provokeret. Mine tanker burde vel være mine egne\! Yrsa giv
 
 – Vores slags har ikke brug for ilt, hvorfor vi ikke er udstyret med lunger. Vi drikker og spiser ligesom jer, men det er mest for sjov – for oplevelsens og selskabets skyld. Rumskibet var bare en flaske med trykluft for at kunne skifte retning og så en termodragt … for der er jo sindssygt koldt i rummet. Den enøjede var forberedt; det var lillebror med den opsprættede mave ikke. Efter ganske kort tid ved det absolutte nulpunkt var han dybfrossen og lige så immobil som os.
 
-“Men du sidder jo foran mig nu”. Jeg fortryder straks at have sagt det åbenlyse.
+“Men du sidder jo foran mig nu.” Jeg fortryder straks at have sagt det åbenlyse.
 
 – Intet bliver skabt af ingenting.
 

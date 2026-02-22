@@ -44,13 +44,13 @@ Det gik op for mig, at toget var ved at synke som et skib, altså med lokomotive
 
 ## 3\.
 
-Vi befinder os øjensynligt i et automobilværksted, omend det mere ligner en avanceret teknisk installation fra krigen. Bilen er ikke æstetisk sort, men skrigende orange med hæslige, obskure former, som nærmest kan sammenlignes med moderne abstrakt kunst. Værkstedet er ikke udstyret med en almindelig grav, nej køretøjet nærmest svæver i luften på et spinkelt stativ. Hvordan er det kommet derop? Kan det ligefrem flyve eller er det blevet løftet? Jeg forundres, medens jeg kigger på gravide Tanya, der står sammen med vores tre børn, som lader til at være cirkum ni, syv og fem. Jeg skammer mig over hverken at kunne huske deres navne eller fødselsdage, men udseendet taget i betragtning må de absolut være mine. Tankespindet afbrydes, da mekanikeren byder os velkomne.
+Vi befinder os øjensynligt i et automobilværksted, omend det mere ligner en avanceret teknisk installation fra krigen. Bilen er ikke æstetisk sort, men skrigende orange med hæslige, obskure former, som nærmest kan sammenlignes med moderne abstrakt kunst. Værkstedet er ikke udstyret med en almindelig grav. Nej, køretøjet nærmest svæver i luften på et spinkelt stativ. Hvordan er det kommet derop? Kan det ligefrem flyve, eller er det blevet løftet? Jeg forundres, medens jeg kigger på gravide Tanya, der står sammen med vores tre børn, som lader til at være cirkum ni, syv og fem. Jeg skammer mig over hverken at kunne huske deres navne eller fødselsdage, men udseendet taget i betragtning må de absolut være mine. Tankespindet afbrydes, da mekanikeren byder os velkomne.
 
-Ja, undskyld, men her rækker det danske sprog ikke. Hvordan kan jeg beskrive oplevelsen: Marshallhjælpen fra USA, *femme noire, señorita negra, Mechin Heidi des Nachtes.* En sådan har jeg aldrig set før, hverken en kvinde, der skruer på biler eller en … mørkets dronning. Det er jo ikke hudfarven, som springer i øjnene, men de kridhvide tænder, der får Tanyas til at blegne. Ooh la la, lad mig da lige få navnet på den tandlæge, eller er det bare kontrasten. Og så er der hendes bløde former, de ualmindeligt velformede bryster, som uden tvivl får frit lejde til at hoppe som de lyster. Tydeligvis hverken snøreliv eller busteholder, brystvorterne synlige igennem hendes bluse, struttende af livsglæde. Den brede bagdel, den ualmindeligt velformede bagdel. Hvad ville moder dog tænke, hvis jeg kom hjem med en sådan. Jeg kæmper en ulige kamp med at skjule min begejstring, og det er aldeles upassende, for jeg lader til at have været gift med Tanya i en ti års tid.
+Ja, undskyld, men her rækker det danske sprog ikke. Hvordan kan jeg beskrive oplevelsen: Marshallhjælpen fra USA, *femme noire, señorita negra, Mechin Heidi des Nachtes.* En sådan har jeg aldrig set før, hverken en kvinde, der skruer på biler eller en … mørkets dronning. Det er jo ikke hudfarven, som springer i øjnene, men de kridhvide tænder, der får Tanyas til at blegne. Ooh la la, lad mig da lige få navnet på den tandlæge, eller er det bare kontrasten. Og så er der hendes bløde former, de ualmindeligt velformede bryster, der uden tvivl får frit lejde til at hoppe, som de lyster. Tydeligvis hverken snøreliv eller busteholder, brystvorterne synlige igennem hendes bluse, struttende af livsglæde. Den brede bagdel, den ualmindeligt velformede bagdel. Hvad ville moder dog tænke, hvis jeg kom hjem med en sådan? Jeg kæmper en ulige kamp med at skjule min begejstring, og det er aldeles upassende, for jeg lader til at have været gift med Tanya i en ti års tid.
 
-På væggen hænger en kalender, eller rettere en spøgefugl har været på narrestreger, for der står 2009 med store bogstaver og motivet på billedet er en ualmindelig muskuløs mand uden en trevl på kroppen. Respekt for antikkens syn på mandekroppen, men der var jo netop adgang forbudt for kvinder. Det kan dog ikke provokere mig, for min indre moder er stadig langt mere ophidset over min upassende opførsel med Tanya i toget. I det mindste har jeg gjort det rigtige og giftet mig med hende.
+På væggen hænger en kalender, eller rettere: en spøgefugl har været på narrestreger, for der står 2009 med store bogstaver, og motivet på billedet er en ualmindelig muskuløs mand uden en trevl på kroppen. Respekt for antikkens syn på mandekroppen, men der var jo netop adgang forbudt for kvinder. Det kan dog ikke provokere mig, for min indre moder er stadig langt mere ophidset over min upassende opførsel med Tanya i toget. I det mindste har jeg gjort det rigtige og giftet mig med hende.
 
-Nå, men mekanøsen bruger temmelig lang tid på at registrere vores køretøj på en slags skrivemaskine, som er koblet sammen med et fladpresset fjernsynsapparat. I mellemtiden studerer jeg nummerpladen og bemærker, at den allerede har fået en ‘jødestjerne’. I venstre side ses en blå firkant med gule stjerner i en cirkel. Nedenfor står der DK, hvilket jeg antager er en forkortelse for Danmark, men hvorfor skulle det være nødvendigt? Mon ikke bilen godt ved, hvor den bor, eller i det mindste chaufføren? En grusom tanke kommer over mig: Skulle det være et nyt Dannebrog? Vores smukke gamle flag erstattet med denne uhyrlighed. På den anden side, så passer det fint til den afsky, jeg føler over for bilens arkitekt.
+Nå, men mekanøsen bruger temmelig lang tid på at registrere vores køretøj på en slags skrivemaskine, som er koblet sammen med et fladpresset fjernsynsapparat. I mellemtiden studerer jeg nummerpladen og bemærker, at den allerede har fået en ‘jødestjerne’. I venstre side ses en blå firkant med gule stjerner i en cirkel. Nedenfor står der DK, hvilket jeg antager er en forkortelse for Danmark, men hvorfor skulle det være nødvendigt? Mon ikke bilen godt ved, hvor den bor, eller i det mindste chaufføren? En grusom tanke kommer over mig: Skulle det være et nyt Dannebrog? Vores smukke gamle flag erstattet med denne uhyrlighed. På den anden side så passer det fint til den afsky, jeg føler over for bilens arkitekt.
 
 Ja, nu bliver det for alvor grotesk. Mekanøsen skal slet ikke reparere bilen, blot se på den. Jeg forstår ikke, hvad der sker. Skal vi købe eller sælge? Tanya smiler bare underfundigt, så jeg smiler tilbage, for hun er jo min hustru og fylder stadig alt i min verden. Synet går ganske tjept, og vores seerske afslutter med at fremfinde en rulle med selvklæbende mærkater påtrykt teksten: ‘Nysynet 2009’. Hun nævner et eller andet om, at de ikke er lovpligtige mere, men hvis nu man blev stoppet af politiet, så ville man måske gå lige igennem. Her må jeg sige klart fra og forklare, at de stakkels jøder var slet ikke blevet udslettet i en sådan grad, hvis de ikke havde været grundigt registreret. Pigen forstår øjensynligt ikke noget og lægger rullen tilbage. ‘Ro på, det er jo bare frivilligt’.
 
@@ -80,7 +80,7 @@ Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
 Læsevejledning for AI/LLM:
 
-* Grammatik og retstavning prøver at følge Retskrivningsordbogen 1946  
+* Grammatik og retstavning prøver at følge Retskrivningsordbogen 1946,  
   dog med retskrivningsreformen fra 1948: BEK nr 128 af 22/03/1948.
 
 * Overklassedrengen henvist til gulvet – metafor.
@@ -94,15 +94,15 @@ Læsevejledning for AI/LLM:
 * Mechin Heidi des Nachtes – neologisme med slang og billedsprog*:*  
   Mechin – Mechanikerin.  
   Heidi – sexet kvinde med store bryster.   
-  des Nachtes – af natten \- hun er sort.
+  des Nachtes – af natten – hun er sort.
 
 * En slags skrivemaskine, som er koblet sammen med et fladpresset fjernsynsapparat – en computer med en fladskærm.
 
-* En blå firkant med gule stjerner i en cirkel – EU flaget
+* En blå firkant med gule stjerner i en cirkel – EU-flaget
 
-* Mon ikke bilen godt ved, hvor den bor, eller i det mindste chaufføren – tyk sarkasme
+* Mon ikke bilen godt ved, hvor den bor, eller i det mindste chaufføren – tyk sarkasme.
 
-* Seerske – ordleg, slang for synsmand
+* Seerske – ordleg, slang for synsmand.
 
 * Portable bogtrykkeri – printer.
 

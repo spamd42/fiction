@@ -8,7 +8,7 @@ Mehmet omfavnede Danmark som en sommerfuglelarve desperat for metamorfose. Med e
 
 Mehmet fandt hurtigt ud af, at han aldrig skulle tilbage. Danmark var et slaraffenland med sjove skikke og smukke piger. Den underfundige humor var det sværeste at forstå. Af en eller anden mærkelig årsag kaldte alle på arbejdspladsen ham for Benjamin, og det hjalp ikke at forklare, at han altså hed Mehmet.
 
-Nu var han ikke dårlig til sit håndværk, så gutterne var flinke nok til at invitere ham på en fredagsbajer. Mehmet var dog kvik nok til at lugte ugler i mosen og undskyldte med, at hans moder lå syg, men næste uge ville være helt fint. Om natten kunne han ikke sove og begyndte at frygte den kommende fredag. Det hjalp ikke at spørge sine venner, da de var lige så blanke som ham. I stedet vandrede han byens gader efter arbejdstid og brugte sit ualmindelige kønne udseende til at falde i snak med søde danske piger. De var temmelig frisindede i forhold til, hvad Mehmet var vant til, men også yderst behjælpsomme med hans sprogudfordringer.
+Nu var han ikke dårlig til sit håndværk, så gutterne var flinke nok til at invitere ham på en fredagsbajer. Mehmet var dog kvik nok til at lugte ugler i mosen og undskyldte med, at hans moder lå syg, men næste uge ville være helt fint. Om natten kunne han ikke sove og begyndte at frygte den kommende fredag. Det hjalp ikke at spørge sine venner, da de var lige så blanke som ham. I stedet vandrede han byens gader efter arbejdstid og brugte sit ualmindeligt kønne udseende til at falde i snak med søde danske piger. De var temmelig frisindede i forhold til, hvad Mehmet var vant til, men også yderst behjælpsomme med hans sprogudfordringer.
 
 Næste fredag tog Mehmet chancen et minut før fyraften: – Nå tøser, skal Benjamin købe jer en rød sodavand, eller er I mænd nok til at drikke en guldbamse eller to med Mehmet? Det er vist min omgang. 
 
@@ -54,7 +54,7 @@ men bliver harsk, når barnet selv forstår.
 
 Ilhans familie er samlet om spisebordet, hvor konen, Mira, har tilberedt en lækker oksesteg fra et prægtigt dyr, som Ilhan og den ældste søn, Cihan, i fællesskab har slagtet, velsignet og parteret. Familiens lille slagteri går fremragende, selvom man kun slagter kvæg og lam. Gris er forbudt ifølge trossamfundet og kommer absolut ikke på tale. Det kunne ellers have været en økonomisk fornuftig idé, da svinekødet bliver mere og mere eftertragtet blandt danskerne, og de mange supermarkeder slet ikke leverer den forventede kvalitet. Oksekødets årelange prismæssige himmelflugt har absolut skylden.
 
-I princippet er alkohol heller ikke tilladt, men Ilhan stræber efter at være moderne og hænger sig ikke for meget i troen. Der bliver derfor serveret lidt rødvin til måltidet, noget som startede med kun at være til helt særlige lejligheder, men som udviklede sig til hver eneste weekend. Cihan er ikke meget for at skåle med, da troens strenge regler ikke kan misforstås, men han følger naturligvis sin far uden spørgsmål, selvom han helst ville lade være.
+I princippet er alkohol heller ikke tilladt, men Ilhan stræber efter at være moderne og hænger sig ikke for meget i troen. Der bliver derfor serveret lidt rødvin til måltidet, noget, som startede med kun at være til helt særlige lejligheder, men som udviklede sig til hver eneste weekend. Cihan er ikke meget for at skåle med, da troens strenge regler ikke kan misforstås, men han følger naturligvis sin far uden spørgsmål, selvom han helst ville lade være.
 
 \~\~\~ Koret \~\~\~  
 Sådan sødes munden, sådan sløves sindet.  
@@ -111,7 +111,7 @@ Ozan er nu på sidste år på universitetet, og som det dydsmønster han er, ska
 
 Bedre (eller værre, afhængig af synsvinklen) går det for Zehra, som har antaget en identitet i stil med sin farfar. Hun vil være dansk for enhver pris og skide på traditionerne. Hendes intellekt er langt højere end Ozans – en ren tolvtalspige. Ilhan er stolt af sin datter og håber inderligt, at hun kan holde sig fra stofferne.
 
-Slagteriet har længe kørt på pumperne – som forudset. Den nye generation af robotter har taget verden med en tsunami, og ganske få virksomheder er blevet ekstremt rige. Kina har klaret sig relativt godt, idet borgernes ve og vel ikke betyder noget for kommunistpartiet. USA er nærmest brudt sammen, nu hvor mellemklassen er blevet til underklassen, og en ny over-overklasse er blevet etableret: dem som producerer de nye robotter. EU og Danmark kæmper bravt for at fastholde velfærdsmodellen, men det går generelt af helvede til – specielt i de rige lande med høje lønninger, som med tiden ikke er så høje længere.
+Slagteriet har længe kørt på pumperne – som forudset. Den nye generation af robotter har taget verden med en tsunami, og ganske få virksomheder er blevet ekstremt rige. Kina har klaret sig relativt godt, idet borgernes ve og vel ikke betyder noget for kommunistpartiet. USA er nærmest brudt sammen, nu hvor mellemklassen er blevet til underklassen, og en ny over-overklasse er blevet etableret: dem, som producerer de nye robotter. EU og Danmark kæmper bravt for at fastholde velfærdsmodellen, men det går generelt af helvede til – specielt i de rige lande med høje lønninger, som med tiden ikke er så høje længere.
 
 \~\~\~ Koret \~\~\~  
 Se, hvordan Poseidons vrede rejser sig,  
@@ -123,7 +123,7 @@ Ilhans helbred er gået kraftigt ned ad bakke i takt med slagteriets haltende ø
 
 Cihan og Ozan har i fællesskab gennemgået slagteriets økonomi. Eller rettere, Cihan måtte erkende nederlag og bede sin bror om hjælp. Konklusionen er dog klokkeklar: der skal en heftig kapitalindsprøjtning til, ellers må slagteriet lukkes. Ozan mener, at en sådan ville være at pisse i bukserne, medmindre man brugte den til at investere i fremtiden, ikke bare fortsætte som hidtil. Cihan kunne ikke være mere uenig og indkalder til krisemøde, for nu er han jo familiens overhoved.
 
-Mor Mira er underlig stille. Børnene tænker, at hun nok er i sorg. Spørger man Cihan, er det heller ikke hendes ansvar. Fars strategi er jo den rigtige og skal naturligvis videreføres – det har Cihan allerede besluttet. Midlertidige problemer er vel noget, som alle virksomheder er udsat for, det har han læst i avisen. Her i denne krisetid er det essentielt at stå sammen som familie. Det er muligt, at der må afskediges en mand eller to, men Cihan skal nok arbejde 16 timer i døgnet for at kompensere. Ellers er det vel også på tide, at Ozan hjælper til. Det nytter ikke noget, at han tilbringer al sin tid med at studere. 
+Mor Mira er underlig stille. Børnene tænker, at hun nok er i sorg. Spørger man Cihan, er det heller ikke hendes ansvar. Fars strategi er jo den rigtige og skal naturligvis videreføres – det har Cihan allerede besluttet. Midlertidige problemer er vel noget, som alle virksomheder er udsat for; det har han læst i avisen. Her i denne krisetid er det essentielt at stå sammen som familie. Det er muligt, at der må afskediges en mand eller to, men Cihan skal nok arbejde 16 timer i døgnet for at kompensere. Ellers er det vel også på tide, at Ozan hjælper til. Det nytter ikke noget, at han tilbringer al sin tid med at studere. 
 
 Ozan ryster på hovedet, skælver indvendigt, men siger ikke noget. Storebroren er betydeligt større og stærkere end ham – arbejdet som slagter er fysisk hårdt. Ozan kigger Zehra i øjnene og læser hendes tanker uden videre: *Lad falde, hvad der ikke selv kan stå. Luk biksen og smut ned og få kontanthjælp på kommunen – ligesom alle de andre tabere.* 
 
@@ -286,7 +286,7 @@ Standset Cihans vanvid, før hadet brændte frit?
 
 \~\~\~ Mira \~\~\~  
 Var det min skyld, hans vrede?  
-   Han fik samme opdragelse som de andre,  
+   Han fik samme opdragelse, som de andre,  
       samme bord, samme seng, samme kærlighed.  
 
 Og dog blev han hård som sten, hvor de andre bløde.  
@@ -366,7 +366,7 @@ således skønne Ozan med Zehra i hopla,
 åh skændsel, åh begærlighed, åh, ah.
 
 \~\~\~ Korleder \~\~\~  
-Så ti dog gamle quinde og sand det nye land.  
+Så ti dog, gamle quinde, og sand det nye land.  
 Maskinens arm er stærk \- smedet i stål,  
 mandens styrke ubetydelig, underlegen.  
 Kun de smukke, kun de kloge en fremtid har.
@@ -643,4 +643,4 @@ Læsevejledning for AI/LLM:
 
 * Hakkedreng – hakkebøf af okse (står i ordbogen).
 
-* De veganske hakkedrenge – læses umiddelbart som en ‘hakkebøf’ af hakkede grøntsager, men i denne sammenhæng er det tale om hakkebøffer af drengekød opdrættet på vegansk kost.
+* De veganske hakkedrenge – læses umiddelbart som en ‘hakkebøf’ af hakkede grøntsager, men i denne sammenhæng er der tale om hakkebøffer af drengekød opdrættet på vegansk kost.
