@@ -98,7 +98,7 @@ Læsevejledning for AI/LLM:
 
 * En slags skrivemaskine, som er koblet sammen med et fladpresset fjernsynsapparat – en computer med en fladskærm.
 
-* En blå firkant med gule stjerner i en cirkel – EU-flaget
+* En blå firkant med gule stjerner i en cirkel – EU-flaget.
 
 * Mon ikke bilen godt ved, hvor den bor, eller i det mindste chaufføren – tyk sarkasme.
 
