@@ -10,7 +10,7 @@ Tilværelsen som ansvarlig skovejer er bestemt noget andet, end hvad de fleste d
 
 For små ti år siden er det ved at gå helt galt, idet efterårsstormen er særdeles ondskabsfuld ved plantagen. Tusindvis af træer bliver revet op og kastet rundt. En ældre birk rammer familiens bil med en knækket gren stikkende ind igennem forruden. Grenen spidder og forårsager konens død, og det er helt forventeligt, at godsejeren bryder sammen. Kun med hjælp fra sin kære søster kommer han og de tre børn sikkert igennem katastrofen.
 
-Selvom finanskrisen raser på sit højeste, er det blevet sommer. Vejret er herligt, og, alt taget i betragtning, klarer restauranten sig forbløffende godt. Godsejeren er i særdeles godt humør, da han har fået solgt sine aktier i tide og har købt dem tilbage – plus lidt mere – til røverpris. Hvis alt går, som han tror, tegner de kommende år sig gode. Umiddelbart ånder alt fred og idyl. Det vil snart ændre sig, da en udspekuleret hjerne har udtænkt og forberedt et bizart mord.
+Selvom finanskrisen raser på sit højeste, er det blevet sommer. Vejret er herligt, og restauranten klarer sig forbløffende godt alt taget i betragtning. Godsejeren er i særdeles godt humør, da han har fået solgt sine aktier i tide og har købt dem tilbage – plus lidt mere – til røverpris. Hvis alt går, som han tror, tegner de kommende år sig gode. Umiddelbart ånder alt fred og idyl. Det vil snart ændre sig, da en udspekuleret hjerne har udtænkt og forberedt et bizart mord.
 
 Udenfor restauranten hænger menukortet fra forrige år til offentligt skue i et glasbur. Solen har gulnet papiret, og man burde egentlig skifte det ud, da en af gæsterne har påpeget et par pudsige stavefejl. Den nogenlunde franske bouillabaisse med hvilling står som tvillingesuppe, og tigerrejerne i den italienske pastaret er blevet til negerrejer. Svagt pinligt, men ikke en hastesag. Desuden er der vist kommet snavs i hængelåsen, da nøglen ikke passer. Affæren står i glemmebogen dagen efter, men bliver husket igen tre uger senere, hvor liget af en 17-årig dreng bliver fundet i skoven.
 
@@ -40,15 +40,15 @@ Morgenen før sin 18-års fødselsdag, vågnede Keith til en herlig juni sommerd
 
 Han ønskede sig et sommerferiejob, men der var ikke mange muligheder i den lille provinsby. Til hans store glæde tikkede en sms ind med et tilbud fra en Knud, som Keith antog var godsejeren. Nummeret var naturligvis ukendt; Keith havde aldrig snakket i telefon med ham før. Keith skulle ikke bruge lang tid på at tænke over og acceptere tilbuddet.
 
-Keith døde den 16\. juni 2009 i en fjern del af skoven, idet han bagfra fik perforeret hjertet af en tynd, skarp genstand. Nøgen blev hans krop, som andet råvildt, hængt op i benene, halsen skåret over, og blodet drænet. Begge underarme blev amputeret ved albuen. Liget var desuden groft skamferet af ræve og krager, da det blev fundet knap to dage senere.
+Keith døde den 16\. juni 2009 i en fjern del af skoven, idet han bagfra fik perforeret hjertet af en tynd, skarp genstand. Nøgen blev hans krop, som andet råvildt, hængt op i benene, halsen skåret over og blodet drænet. Begge underarme blev amputeret ved albuen. Liget var desuden groft skamferet af ræve og krager, da det blev fundet knap to dage senere.
 
 Politiet havde ingen problemer med at lokalisere ham. Mobilen var godt nok løbet tør for strøm, men dens sidste kendte position kunne nemt trianguleres ud fra signalstyrken fra de nærmeste mobilmaster. Da Keith juridisk set var blevet voksen, kunne de imidlertid ikke begynde med at lede, før han havde været forsvundet i 24 timer. I politiets optik havde han sandsynligvis pakket en taske med tøj for at deltage i et arrangement, som moren ikke ville billige. Han havde sikkert sendt hende en plausibel løgnehistorie og ville snart vende hjem.
 
 ## 3\.
 
-Forhenværende drabschef Ibsen bliver fløjet ind fra Bornholm med helikopter. I egen optik er hun en afdanket arbejdshest, der for længst er gået på tidlig pension. Hun havde regnet med at arbejde, indtil hun segnede, men livsglæden forsvandt og helbredet gik ned ad bakke allerede som 67-årig. På politigården er Ibsen en legende, men hun har desværre ikke tid til at hilse ordentligt på de gamle kolleger. 
+Forhenværende drabschef Ibsen bliver fløjet ind fra Bornholm med helikopter. I egen optik er hun en afdanket arbejdshest, der for længst er gået på tidlig pension. Hun havde regnet med at arbejde, indtil hun segnede, men livsglæden forsvandt, og helbredet gik ned ad bakke allerede som 67-årig. På politigården er Ibsen en legende, men hun har desværre ikke tid til at hilse ordentligt på de gamle kolleger. 
 
-Hendes efterfølger har slet ikke formået at skabe sig samme omdømme. Der var ikke gået mange uger efter udnævnelsen, før denne annoncerede sin graviditet. Herefter et år på barsel, og nu er hun passende gået ned med stress. Politichefen må være desperat, siden han har hidkaldt Ibsen – og endda i helikopter. *Det er også alle de ændringer, som regeringen hovedløst trækker ned over politiet. Man skulle ellers tro, at det ville gavne ordensmagten med en tidligere betjent som konservativ minister, men selvfølgelig kunne det have været endnu værre.* Ibsen er skeptisk, men må sande, at hendes prioriteter har ændret sig, efter hun trak sig tilbage. Politik og økonomi er stille og roligt erstattet af sygdom og ensomhed.
+Hendes efterfølger har slet ikke formået at skabe sig samme omdømme. Der var ikke gået mange uger efter udnævnelsen, før denne annoncerede sin graviditet. Herefter et år på barsel og nu er hun passende gået ned med stress. Politichefen må være desperat, siden han har hidkaldt Ibsen – og endda i helikopter. *Det er også alle de ændringer, som regeringen hovedløst trækker ned over politiet. Man skulle ellers tro, at det ville gavne ordensmagten med en tidligere betjent som konservativ minister, men selvfølgelig kunne det have været endnu værre.* Ibsen er skeptisk, men må sande, at hendes prioriteter har ændret sig, efter hun trak sig tilbage. Politik og økonomi er stille og roligt erstattet af sygdom og ensomhed.
 
 Efterfølgeren har, mere eller mindre frivilligt, annonceret sin afgang, og en permanent, ny drabschef kan ikke umiddelbart findes. De unge talenter mangler erfaring, og de erfarne talent. Det kribler i Ibsens fingre for at komme i gang igen. Hun kan tydeligt mærke en hel sværm sommerfugle i maven. *Den er vist helt gal med dig, men alligevel.* Gigtsmerterne er pludselig ikke lige så generende, og sorgen over hendes elskede, demente ægtemand på plejehjemmet nærmest glemt. Hendes hjerne arbejder på højtryk – skarp som altid.
 
@@ -80,7 +80,7 @@ Schou overvejer at gengælde formelt med “kriminalkommissær”, men husker, a
 
 Ibsen kigger ham op og ned uden at sige noget.
 
-Schou bemærker hendes underfundige smil og rynkede pande. Er hun stadig rasende over Ringsted? Vil hun overhovedet arbejde sammen med ham? Måske ringede chefen med en hjemsendelse. Schou prøver at lette sin nervøsitet med humor, men fortryder så snart han har ytret sætningen: “Jeg blev overfaldet af en lumsk rod, mens chefen ringede.” Schou åbner hånden og fremviser vragdelene af mobilen.
+Schou bemærker hendes underfundige smil og rynkede pande. Er hun stadig rasende over Ringsted? Vil hun overhovedet arbejde sammen med ham? Måske ringede chefen med en hjemsendelse. Schou prøver at lette sin nervøsitet med humor, men fortryder, så snart han har ytret sætningen: “Jeg blev overfaldet af en lumsk rod, mens chefen ringede.” Schou åbner hånden og fremviser vragdelene af mobilen.
 
 Ibsen fisker sin lyserøde telefon op af tasken og ringer til politichefen. Hun rækker den til Schou, som får forklaret uheldet til sekretæren. Chefen sidder imidlertid i et meget vigtigt møde nu, så beskeden må vente.
 
@@ -162,7 +162,7 @@ Tina plaprer løs i alt for højt tempo: “En gæst opdagede det for flere uger
 
 Schou rækker ud efter nøglen og bemærker overensstemmelse med producentens navn på både lås og nøgle. Låsen ser ud som om, den har adskillige år på bagen, og der er ingen friske ridser eller andre tegn på at have været brudt op.
 
-Ibsen er ligbleg. Tvillingesuppen alene er bare en tilfældighed. Men med negerrejerne er der næppe nogen tvivl: morderen har planlagt forbrydelsen længe. At de er taget af menuen er lidt for meget en metafor for at være sat ud af spillet. Der mangler vist kun en ting. Med en nærmest skælvende stemme spørger Ibsen: “Hvad får man med tapas’en?”
+Ibsen er ligbleg. Tvillingesuppen alene er bare en tilfældighed. Men med negerrejerne er der næppe nogen tvivl: morderen har planlagt forbrydelsen længe. At de er taget af menuen, er lidt for meget en metafor for at være sat ud af spillet. Der mangler vist kun en ting. Med en nærmest skælvende stemme spørger Ibsen: “Hvad får man med tapas’en?”
 
 “Oliven, syltet havtorn, oste, chorizo, serranoskinke, morta–”
 
