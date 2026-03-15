@@ -1,6 +1,6 @@
 # 2039; det sidste strå
 
-*Med Søren bag rattet, kolliderede vi frontalt med en modkørende lastbil.*  
+*Med Søren bag rattet kolliderede vi frontalt med en modkørende lastbil.*  
 *Smerten varede kun et øjeblik – herefter udløb vores tid i denne verden.*
 
 ## 1\.
@@ -9,7 +9,7 @@ Vi mærker solens behagelige varme fra en skyfri himmel. I baggrunden ruller bø
 
 Omkring os ses en snes unge mennesker i samme konfuse tilstand som os. De fleste alene, men nogle stykker sidder i små grupper og kigger forbavset på hinanden. Jeg studerer Søren, som jeg har kendt det meste af mit liv. Hans lækre jakkesæt i nyeste mode – med skarpe snit og raffi detaljer – er erstattet af en sort, anonym T-shirt og shorts. Forsvundet er det smarte mekaniske ur og designerbrillerne, ligesom de blankpolerede sko. Jeg kigger ned og betragter mine egne tæer. Vi er åbenbart begge barfodede. Jeg udbryder: “Men du ser nu ellers fantastisk ud.” Sørens smil afslører perfekte hvide tænder. Pist væk er hans mange rynker, og hårgrænsen har sænket sig til fordums tid. Han ligner jo en fyr i sin bedste alder.
 
-– Lige over, du … øh, hva’ faen er det for en høstak, du har på hovedet? Søren hiver mig blidt i håret. Jeg mærker straks, at noget er galt, eller rettere: noget er helt som det burde være. Jeg fører en hånd igennem mit lange, glatte hår, som går ned til skuldrene – præcis som jeg altid har ønsket i min ungdom, men aldrig fik gjort noget ved. Jeg skal også lige mærke efter på maven. Ja, den er god nok, de overflødige kilo er forsvundet. Men bedst af alt: brillerne er væk, og ungdomssynet er tilbage. 
+– Lige over, du … øh, hva’ faen er det for en høstak, du har på hovedet? Søren hiver mig blidt i håret. Jeg mærker straks, at noget er galt, eller rettere: noget er helt som det burde være. Jeg fører en hånd igennem mit lange, glatte hår, som går ned til skuldrene – præcis som jeg altid har ønsket i min ungdom, men aldrig fik gjort noget ved. Jeg skal også lige mærke efter på maven. Ja, den er god nok; de overflødige kilo er forsvundet. Men bedst af alt: brillerne er væk, og ungdomssynet er tilbage. 
 
 Med mit falkeblik betragter jeg scenen på stranden. Den uformelle beklædning med T-shirt og shorts lader til at være uniformen. Alle er barfodede – ikke overraskende, for stranden består af det fineste sand. Et ungt par omfavner hinanden, mens tårerne løber ned ad deres kinder. Jeg genkender udtrykket af gensidig glæde og begær. Jeg smiler og tænker højt: “Nå, der er nok nogen, som gerne ville være alene.”
 
@@ -209,7 +209,7 @@ Nu, et lille halvt år senere, ved jeg, at jeg har valgt rigtigt. Søren fortæl
 
 Tekstilgræsset, derimod, er lige mig. Jobbet lyder umiddelbart simpelt, men er langt mere kompliceret. Græsset lader til at vokse i symbiose med insekterne. Høstes for meget, dør tuen, og så bliver græssets fibre alt for grove til, at de kan bruges til andet end dørmåtter. Hvis en junkie har været i gang med fødderne, er mange af stænglerne ofte knækket og ubrugelige, så det gælder om at kende de gode steder og holde dem hemmelige.
 
-Jeg tænker ofte på Ibens ord om, at insekterne kaldte på hende. Jeg kan sagtens høre dem, når jeg står alene i skoven – men jeg hører ikke en sirenesang, mere en slags summen af velvære. Lyden ændrer karakter samt frekvens i takt med, at græsset høstes og går over i en slags klageskrig af smerte. Det er i hvert fald min fortolkning, min hypotese.
+Jeg tænker ofte på Ibens ord om, at insekterne kaldte på hende. Jeg kan sagtens høre dem, når jeg står alene i skoven – men jeg hører ikke en sirenesang, mere en slags summen af velvære. Lyden ændrer karakter samt frekvens i takt med, at græsset høstes, og går over i en slags klageskrig af smerte. Det er i hvert fald min fortolkning, min hypotese.
 
 Min makker kan ikke høre nogen forskel. Jeg tror, at hun er bange for at dele Ibens skæbne, så hun høster græsset hurtigst muligt og skynder sig videre. Vi arbejder ikke specielt godt sammen og taler sjældent. Jeg foretrækker at arbejde alene, hvor jeg kan gå i mine egne tanker, nyde skoven og fundere over, hvad jeg oplever. Jeg tror, at min makker har det på samme måde, så vi beslutter hurtigt at dele skoven i hver vores halvdel.
 
@@ -231,7 +231,7 @@ Madvarer og rent drikkevand er heldigvis ikke et problem. Vinen kan droppes, og 
 
 Et forslag kommer på bordet om at arrangere en indsamling. Få frivillige til at gå fra dør til dør natten igennem og spørge alle, om de kan aflevere et stykke tøj. Tilbyd at tilbagekøbe let brugte stykker. Den idé er Harald dog ikke meget for, da den vil teste fællesskabet og i sidste ende hans lederskab.
 
-Jeg kan godt se pointen, der går nemlig adskillige timer, før vi ved præcist, hvor meget vi får brug for. Mon ikke mange vil tænke på sig selv først og aflevere gamle laser; se det som en mulighed for profit ved at kunne bytte til helt nyt senere. Der er heller ikke behov for at involvere samtlige indbyggere på øen, så dem, der ikke bliver vækket, ville føle, at de er gået glip af en mulighed. Ja, det vil skabe splid og lægge unødvendigt pres på Harald. Af samme årsag kan vi heller ikke tømme tøjbutikken for mere eksklusive designs, da byens mange hårdtarbejdende arbejdere ville føle sig forfordelt, og de nye gæster ville blive indbyrdes forskelsbehandlet. Jeg tænker, at man i den gamle verden ville uddele det, man havde, give kvinderne først, så de var fuldt påklædte, adskille dem fra mændene og så tage den derfra, men jeg forudser, at de mange nye gæster måske ville rapse hinandens tøj under badning eller ligefrem komme op og slås.
+Jeg kan godt se pointen; der går nemlig adskillige timer, før vi ved præcist, hvor meget vi får brug for. Mon ikke mange vil tænke på sig selv først og aflevere gamle laser; se det som en mulighed for profit ved at kunne bytte til helt nyt senere. Der er heller ikke behov for at involvere samtlige indbyggere på øen, så dem, der ikke bliver vækket, ville føle, at de er gået glip af en mulighed. Ja, det vil skabe splid og lægge unødvendigt pres på Harald. Af samme årsag kan vi heller ikke tømme tøjbutikken for mere eksklusive designs, da byens mange hårdtarbejdende arbejdere ville føle sig forfordelt, og de nye gæster ville blive indbyrdes forskelsbehandlet. Jeg tænker, at man i den gamle verden ville uddele det, man havde, give kvinderne først, så de var fuldt påklædte, adskille dem fra mændene og så tage den derfra, men jeg forudser, at de mange nye gæster måske ville rapse hinandens tøj under badning eller ligefrem komme op og slås.
 
 Ja, nu lyder det måske lidt voldsomt, men vores tøj er ikke billigt masseproduceret i Kina, som i den gamle verden. Der ligger rigtig mange timers arbejde i høstning af græsfibrene, vævning og syning. T-shirten og shortsene er faktisk en rigtig generøs velkomstgave.
 
@@ -301,7 +301,7 @@ Jeg vågner i mørket. Det er en af disse umådeligt mørke nætter, hvor man ik
 
 Om morgenen har Harald indkaldt til ekstraordinært møde i lederkredsen. Det er dog overstået meget hurtigt, idet han starter med at banke sablen ned i bordet ud for min plads og forlader hotellet med: – De damer, de herrer, det har været en udsøgt fornøjelse. 
 
-Jeg ser hans gestus som, at det nu er mig, der er den nye oldermand. Det er en decideret katastrofe, som jeg ofte har frygtet i mine værste mareridt. Under mit lederskab forudser jeg, at alt, hvad Harald har opbygget, hele det velfungerende samfund, vil falde til jorden og forvitre. 
+Jeg ser hans gestus, som at det nu er mig, der er den nye oldermand. Det er en decideret katastrofe, som jeg ofte har frygtet i mine værste mareridt. Under mit lederskab forudser jeg, at alt, hvad Harald har opbygget, hele det velfungerende samfund, vil falde til jorden og forvitre. 
 
 Så let får Harald ikke lov til at slippe, så jeg lader sablen sidde og følger efter ham ned på stranden, hvor han sætter sig og stirrer mod horisonten. Uden at sige noget tager jeg plads ved siden af ham og funderer lidt over hans liv. I sin tid har Harald jo selv oplevet mord, plyndringer, trælle og menneskelige ofringer. De mange efterfølgende rædsler, som jeg kun har læst om, har han fået genfortalt af dem, som selv har bevidnet dem: sennepsgas, afbrænding af hekse, koncentrationslejre. Harald har gjort sit bedste for at følge med, forstå nutiden og tilpasse sig samfundet. Jeg forstår hans frustration. Nu handler det ikke længere om overlevelse, men om abstrakte ideer, der ikke giver mening her.
 

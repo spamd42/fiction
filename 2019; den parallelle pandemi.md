@@ -26,7 +26,7 @@ Betragt indersiden af dine øjenlåg.
 
 Hvis du ikke ser andet end dine grå øjenlåg, er tidspunktet ikke det rette. Prøv igen senere.
 
-Ser du et lysglimt, så følg det. Vær ikke bange – du er ikke ved at dø. Når du kommer tættere på, ser lyset anderledes ud. Måske er det to selvlysende cifre, som skifter: 89, 51, 17\. Alt er godt, du er på rette vej. Måske ser du en aubergine eller en flodhest. Portalen kan skjule sig bag ethvert udseende. Bare følg med. Lad ørnen gribe dig i sine mægtige klør. Fald ned i den dybe sump. Husk at du ligger i din seng, der kan ikke ske dig noget.
+Ser du et lysglimt, så følg det. Vær ikke bange – du er ikke ved at dø. Når du kommer tættere på, ser lyset anderledes ud. Måske er det to selvlysende cifre, som skifter: 89, 51, 17\. Alt er godt; du er på rette vej. Måske ser du en aubergine eller en flodhest. Portalen kan skjule sig bag ethvert udseende. Bare følg med. Lad ørnen gribe dig i sine mægtige klør. Fald ned i den dybe sump. Husk at du ligger i din seng; der kan ikke ske dig noget.
 
 Nu sker det snart.
 
@@ -39,7 +39,7 @@ Portalen åbner sig.
       Du ved, at han er dig, men du kan ikke se din modparts ansigt.
 
 Han er dig, og du er ham. I flyder sammen på en underlig måde.  
-   Du er i hans verden og han i din.  
+   Du er i hans verden, og han i din.  
       I er helt ens og vidt forskellige.
 
 Nu er du i et mylder af mennesker, hvilket du ikke er meget for i din verden. Her er mange ting anderledes, og de ukendte ansigter passer ligesom ind. Nogle af dem kender dig åbenbart og andre din modpart. Det er forvirrende; du er forvirret.
@@ -84,13 +84,13 @@ Selve løsningen er for triviel, så portalen spoler frem i tid for ikke at kede
 
 Nu er du i en forhal med en del fremmede mennesker. Din tøjstil passer ikke ind, og ude fra gaden kommer en stor ubehagelig mand med klar intention om at smide dig ud. Manden må være i ledtog med kvinden på sengen. Du er ikke voldelig, men du indikerer over for ham, at han nok hellere må smutte, mens han stadig evner. Inden manden når at svare, er din modpart dukket op, og i et kortvarigt voldsorgie brækker han begge mandens underarme.
 
-Det går op for dig, at du godt kan lide din modpart og han dig.
+Det går op for dig, at du godt kan lide din modpart, og han dig.
 
 ## 3\.
 
 Nu er du i et teater. Lyset er dæmpet, og forestillingen skal til at gå i gang. På rækken foran sidder en tilsyneladende ung kvinde omvendt på knæ. Hun kigger ned i sædet og er åbenbart ved at filme fra sin mobiltelefon, idet genskinnet fra hendes briller irriterer dig grusomt. Du fornemmer, hvad der kommer til at ske: kvinden er aktivist og vil spolere forestillingen med et eller andet ligegyldigt budskab, som rager dig en høstblomst. Op i røven med hende og budskabet.
 
-“HÅNDGRANAT” hører du nogen råbe. Op i… (detaljerne er utydelige) – i hvert fald ned i hendes bukser, så hun kan filme med begge hænder. Du keder dig og gaber. Publikum ville gå i panik i din verden, men her evakuerer de salen stille og roligt. Aktivisten værdiger dig ikke et blik, selvom der kun er halvanden meter mellem jer. Du er ikke våbenekspert, men en håndgranat har vel en split, så det er bare en attrap. Hvor provokerende\! Du synker ned i sædet; du flyder ud, og nu ligger du på siden hen over fire polstrede stole. Egentlig ganske behageligt, du mangler bare et slumretæppe. Portalen læser dine tanker og frembringer dit yndlingstæppe fra din egen verden.
+“HÅNDGRANAT” hører du nogen råbe. Op i… (detaljerne er utydelige) – i hvert fald ned i hendes bukser, så hun kan filme med begge hænder. Du keder dig og gaber. Publikum ville gå i panik i din verden, men her evakuerer de salen stille og roligt. Aktivisten værdiger dig ikke et blik, selvom der kun er halvanden meter mellem jer. Du er ikke våbenekspert, men en håndgranat har vel en split, så det er bare en attrap. Hvor provokerende\! Du synker ned i sædet; du flyder ud, og nu ligger du på siden hen over fire polstrede stole. Egentlig ganske behageligt; du mangler bare et slumretæppe. Portalen læser dine tanker og frembringer dit yndlingstæppe fra din egen verden.
 
 Du får dig en velfortjent lur og vågner kort tid efter, hvor aktivisten føres bort i håndjern. Hun bander og svovler over dig, påstår, at du har spoleret det hele. Altid til tjeneste, det var en sand fornøjelse. Kan forestillingen nu endelig komme i gang?
 
@@ -106,7 +106,7 @@ Du er edderspændt og fornemmer, at resten af salen har det på samme måde.
 
 Men selvfølgelig sker det uundgåelige: sabotage. Hvad, der på afstand ligner et nøgent barn, er i gang med at splitte en teknisk installation i atomer. Den minder lidt om en ribbe fra gymnastiksalen, men kvik, som du er, gennemskuer du straks, at det er et avanceret apparat til at måle skuespillere og musikanter i tre dimensioner, så de kan projekteres rundt i salen med høj præcision.
 
-Apparatet er fortid. Du kan nu se, at “barnet” har gnavet sig igennem ydervæggen og efterladt et gabende hul. Det løber ind mod midten af scenen og ligner ikke længere et barn, mere en kæmpe hårløs rotte. Den angriber endnu en installation, og nu fosser der vand ud i det dybe teatergulv. Sikke en præsentation, det er simpelthen for realistisk.
+Apparatet er fortid. Du kan nu se, at “barnet” har gnavet sig igennem ydervæggen og efterladt et gabende hul. Det løber ind mod midten af scenen og ligner ikke længere et barn, mere en kæmpe hårløs rotte. Den angriber endnu en installation, og nu fosser der vand ud i det dybe teatergulv. Sikke en præsentation; det er simpelthen for realistisk.
 
 Gulvet er nu en sø, og gennem hullet i væggen strømmer en invasion af hårløse kæmperotter. De er utålmodige og får hurtigt gnavet hullet større. Søen er overfyldt med gnavere, der soignerer sig og skider samtidigt. Det krystalklare vand burde være møgbeskidt, men tyngdekraften er midlertidigt vendt på hovedet, så snavs og ekskrementer falder opad og samles i en bunke på teaterloftet.
 
@@ -134,7 +134,7 @@ Du har hørt masser af nærdødshistorier. Først svæver du over din krop, og d
 
 Tiden går, og du har masser af tid til at fundere over liv og død, eller hvad man nu skal kalde din tilstand. Det var dog forfærdeligt. Men du kan jo faktisk se indersiden af dine øjenlåg. Du kan også mærke katten ligge trygt i ske. Det varmer dejligt. En anden forklaring kunne være, at du har pisset i sengen. Lugter der lidt af urin? Måske er det en hospitalslugt? Du forsøger at råbe om hjælp, men din mund nægter at adlyde.
 
-Okay\! Nu er det vist officielt på tide at få et angstanfald og gå i panik. Du kan tydeligt mærke dine arme og ben, men du er totalt paralyseret. Kan du overhovedet trække vejret selv, eller ligger du i respirator? Drak du en whisky for mange? Fik du den hjerneblødning, du altid har frygtet, dog aldrig nok til at drikke mindre? Hvor ironisk … du husker tydeligt, at gårsdagen var torsdag, den ene dag om ugen, hvor du holder dig ædru. Ikke af lyst men af princip. Kan man undlade at drikke én dag om ugen, og kan man vågne uden at have abstinenser, ja, så er man ikke alkoholiker.
+Okay\! Nu er det vist officielt på tide at få et angstanfald og gå i panik. Du kan tydeligt mærke dine arme og ben, men du er totalt paralyseret. Kan du overhovedet trække vejret selv, eller ligger du i respirator? Drak du en whisky for mange? Fik du den hjerneblødning, du altid har frygtet, dog aldrig nok til at drikke mindre? Hvor ironisk … du husker tydeligt, at gårsdagen var torsdag, den ene dag om ugen, hvor du holder dig ædru. Ikke af lyst, men af princip. Kan man undlade at drikke én dag om ugen, og kan man vågne uden at have abstinenser, ja, så er man ikke alkoholiker.
 
 Desuden drikker du jo ikke så meget. Bare sådan lidt over, hvad sundhedsmyndighederne anbefalede i gamle dage. Hah, der er langt op til de 21 genstande om dagen. Eller var det om ugen? Lige meget, lige meget nu. Du er jo aldrig fuld, når du går i seng. Du har ikke været rigtig beruset i årtier. Du bliver allerhøjest påvirket og stopper altid i tide. Det har intet med selvdisciplin at gøre; næh, du kollapser simpelthen, før du bliver pinlig. Øvelse gør mester, og du er ekspert i at drikke.
 
@@ -200,7 +200,7 @@ Lysglimt.
    Døden kan da kun være bedre end dette liv.  
       Ørkenen sortner for dine øjne.
 
-Badet i koldsved og rystende af kuldegysninger, putter du dig ind under dynen, men det er håbløst – iskold luft trækker stadig ind. Med en sidste kraftanstrengelse, pakker du først fødderne ind i dynen og trækker dynen ind under dig. Minutterne føles som timer, men dit rysteri aftager ikke. Du har brug for en varmedunk, men kan ikke huske, hvor du har lagt den, og desuden ville du næppe overleve turen ud til køkkenet for at fylde den.
+Badet i koldsved og rystende af kuldegysninger putter du dig ind under dynen, men det er håbløst – iskold luft trækker stadig ind. Med en sidste kraftanstrengelse pakker du først fødderne ind i dynen og trækker dynen ind under dig. Minutterne føles som timer, men dit rysteri aftager ikke. Du har brug for en varmedunk, men kan ikke huske, hvor du har lagt den, og desuden ville du næppe overleve turen ud til køkkenet for at fylde den.
 
 Du må nøjes med de fire tæpper i skabet, men hvordan håndterer du den isende luft i soveværelset? Selvom dynen er for tynd, er den bedre end ingenting. Du må lægge en plan: Slå dynen helt af, løb til skabet og kast tæpperne på sengen, læg første tæppe på sengen, læg dig på det, pak dig ind i andet tæppe, herefter dynen og så det sidste tæppe.
 
@@ -212,7 +212,7 @@ Lysglimt.
    Du er tilbage i den frosne fliseørken.  
       Solen smelter hurtigt rimfrosten, og vejret bliver dejligt varmt.
 
-Du vandrer mod det største bjerg, og det er som om, du tager meget lange skridt. Snart er du ved foden og kikker på et skilt, der sandsynligvis viser navnet og højden på bjerget. Du prøver at studere skiltet nærmere, men teksten er ulæselig, dækket af alger og snavs. Lige meget, du ser en flisebelagt trappesti og begynder at bestige bjerget.
+Du vandrer mod det største bjerg, og det er, som om du tager meget lange skridt. Snart er du ved foden og kikker på et skilt, der sandsynligvis viser navnet og højden på bjerget. Du prøver at studere skiltet nærmere, men teksten er ulæselig, dækket af alger og snavs. Lige meget, du ser en flisebelagt trappesti og begynder at bestige bjerget.
 
 Snart er du på toppen, og det er ikke bare et bjerg, men en aktiv vulkan. Du følger trappen ned i krateret, hvor lavaen bobler lystigt. Det bliver varmere, og snart er heden ulidelig. Du fortsætter og bliver ét med lavaen. Lysglimt.
 

@@ -68,7 +68,7 @@ Hvad ved kvinder overhovedet om at save? Jesper griber chancen for at bidrage me
 
 Kirsten virker irriteret. Måske over, at Jesper har tilladt sig at deltage i en nogenlunde privat diskussion, men sikkert mere fordi hun ikke selv har gennemskuet hans løsning. Skeptisk ytrer hun: “Men det tæller vel stadig som tre snit.”
 
-Annelise har igen det perfekte svar: “Tja, hvordan definerer man egentlig et snit.”
+Annelise har igen det perfekte svar: “Tja, hvordan definerer man egentlig et snit?”
 
 Mens Jesper forsøger at udtænke et passende svar, kommer Aage ind fra sidelinien for en frisk bemærkning: “Snakker vi praksis, vil jeg kalde Jespers løsning for tre snit med håndkraft, da det kræver lige meget arbejde. Bruger man derimod en elektrisk rundsav, vil det kun føles som to.”
 

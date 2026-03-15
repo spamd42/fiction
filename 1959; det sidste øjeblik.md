@@ -4,13 +4,13 @@
 
 Forestil Dem, at det er en søndag i juni, og solen skinner fra en skyfri himmel. De får lyst til at spadsere en stille tur i kvarteret uden familien. De tager Dem god tid og inspicerer de andre villaejeres hække og forhaver. De kan med velbehag konstatere, at netop Deres have til stadighed er blandt de smukkeste. De stopper kortvarigt for at hoste – det er også den friske lufts skyld. Ud af Deres skjortelomme fisker De en pakke smøger og tænder op. Ahhh, livet er herligt.
 
-Gåturen er ved at være til ende. De har kun et par hundrede meter tilbage, medmindre De skyder genvej igennem fællesarealet. De har ingenlunde travlt. Nu stopper De op, idet der lugter grimt af dieselolie. Nej, det er ikke Deres tobak, der er blevet dårlig. Deres blik er rettet mod det fælles område, som De ihærdigt gennemsøger for at identificere den stinkende synder. Søndagsenglenes skønne sang bliver overdøvet af et infernalsk støjhelvede, for skjult bag børnenes kælkebakke, ser De en ganske lille helikopter lette. Det må være en ny model, for De bliver ikke blæst omkuld. Udyret er kulsort, og De stirrer længe på emblemet, indtil De genkender det som tilhørende et medlem af alliancen. Fint nok, men hvorfor skal NATO absolut lave øvelse i Deres baghave – og så på en hellig søndag?
+Gåturen er ved at være til ende. De har kun et par hundrede meter tilbage, medmindre De skyder genvej igennem fællesarealet. De har ingenlunde travlt. Nu stopper De op, idet der lugter grimt af dieselolie. Nej, det er ikke Deres tobak, der er blevet dårlig. Deres blik er rettet mod det fælles område, som De ihærdigt gennemsøger for at identificere den stinkende synder. Søndagsenglenes skønne sang bliver overdøvet af et infernalsk støjhelvede, for skjult bag børnenes kælkebakke ser De en ganske lille helikopter lette. Det må være en ny model, for De bliver ikke blæst omkuld. Udyret er kulsort, og De stirrer længe på emblemet, indtil De genkender det som tilhørende et medlem af alliancen. Fint nok, men hvorfor skal NATO absolut lave øvelse i Deres baghave – og så på en hellig søndag?
 
 En port på undersiden åbner sig, og et stålstativ med et påmonteret missil kommer til syne. De er bjergtaget af denne opvisning, omend De føler, at De burde skamme Dem. Den forfærdelige krig er stadig frisk i Deres hukommelse. Godt nok deltog De ikke selv aktivt. Måske skammer De Dem–
 
 De får ikke tænkt tanken færdig, før stativet slipper, og raketmotoren sender missilet mod horisonten. De følger dets bane, som lader til at være direkte mod vandtårnet, der delvist er dækket af en hvid prik. Missilet lader til at fejle og falder til jorden uden at eksplodere. Med et kontrolleret styrt ind over byen virker øvelsen meget realistisk. De er en anelse bekymret for sikkerheden, men tænker, at NATO forhåbentlig ved, hvad de laver. Den hvide prik bliver hurtigt større og viser sig også at være en helikopter, dog meget større – og så bærer den umiskendeligt fjendens røde stjerne. 
 
-I mellemtiden har den sorte helikopter klargjort endnu et missil og affyres.
+I mellemtiden har den sorte helikopter klargjort endnu et missil, som affyres.
 
 Tiden går nærmest i stå, og De forundres over, at De øjensynligt har forladt Deres krop og svæver ved siden af den sorte dræbermaskine. I sneglefart kravler missilet mod den hvide kæmpe, som også viser tænder, idet kuglerne sprøjter fra dens maskinkanon. De ser det hele og er udmærket klar over, hvad der nu skal ske – hvad der øjensynligt allerede er sket.
 
@@ -168,7 +168,7 @@ Som troende og aktiv kirkegænger har De altid regnet med et liv i himlen efter 
 
 Nej, De er sat på prøve og skal bevise Deres værd. Denne realitet må have flere udveje.
 
-De kan tage den nemme vej. Lægge Dem i sengen og falde i søvn, uden at gøre en indsats. De overtræder ingen regler, og Deres adgangsbillet til himlen er uanfægtelig.
+De kan tage den nemme vej. Lægge Dem i sengen og falde i søvn uden at gøre en indsats. De overtræder ingen regler, og Deres adgangsbillet til himlen er uanfægtelig.
 
 De kunne også vælge at drikke Dem fra sans og samling. Over for Sankt Peter kunne De så argumentere, at denne realitet ikke er det rigtige liv, så de normale regler burde ikke være i spil. Da alt vender tilbage til den tidsfrosne tilstand, kunne De stramme buen yderligere og ligefrem begå diverse vederstyggeligheder. Selv hvis De begår massemord, ville blodet og alle andre vidnesbyrd forsvinde, så snart ugerningen er overstået. De kan ligefrem argumentere for, at ofrene ikke tager skade–
 

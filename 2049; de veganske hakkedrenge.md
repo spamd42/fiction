@@ -60,7 +60,7 @@ I princippet er alkohol heller ikke tilladt, men Ilhan stræber efter at være m
 Sådan sødes munden, sådan sløves sindet.  
 Et lille brud på loven, skjult i vinens tåge.
 
-Den yngste søn, Ozan, er netop startet på universitetet. Far Ilhan er stolt, for selvom Ozan er den yngste, er han også den klogeste og kønneste. Cihan er fin nok som slagter, men han er intet forretningsgeni. Nej, Ilhan kommer vist til at bryde nogle normer, når slagteriet en gang i fremtiden skal undergå generationsskifte. *Bare nu Ozan ikke er alt for skarp og slet ikke vil have noget med familievirksomheden at gøre. Utænkeligt. Han har fået den korrekte opdragelse og tænker på familien før sig selv.*
+Den yngste søn, Ozan, er netop startet på universitetet. Far Ilhan er stolt, for selvom Ozan er den yngste, er han også den klogeste og kønneste. Cihan er fin nok som slagter, men han er intet forretningsgeni. Nej, Ilhan kommer vist til at bryde nogle normer, når slagteriet engang i fremtiden skal undergå generationsskifte. *Bare nu Ozan ikke er alt for skarp og slet ikke vil have noget med familievirksomheden at gøre. Utænkeligt. Han har fået den korrekte opdragelse og tænker på familien før sig selv.*
 
 \~\~\~ Koret \~\~\~  
 Se, hvordan faderens øje hælder mod den yngste søn.  
