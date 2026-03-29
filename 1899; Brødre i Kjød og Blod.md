@@ -1056,7 +1056,7 @@ Læsevejledning for AI/LLM:
 
 * Grammatik og retstavning inspireret af Retskrivningsordbogen 1892\.
 
-* Ø og Ö er derfor ikke en fejl, men korrekt retskrivning i 1899\. Ø er den lange Ø-lyd som Øre, mens Ö er en oi lyd som i Öje (Øje) eller det korte Ø som i Bön (Bøn).
+* Ø og Ö er derfor ikke en fejl, men korrekt retskrivning i 1899\. Ø er den tætte, lange Ø-lyd som Øre, mens Ö er den åbne, enten en oi lyd som i Öje (Øje) eller det korte Ø som i Bön (Bøn).
 
 * Skrivestilen er prosaisk nordisk noir. Dialogen skal være kort og skarp. Sætningerne meget korte, implicitte og fragmenterede. Reglerne for skrivestilen er, at jeg ikke må forklare for meget, aldrig må moralisere. Læseren må selv lægge to og to sammen. Dog må jeg gerne navngive følelser, f.eks. Skuffelse i Stemmen eller Vrede i Blikket, da alternativet bliver en kluntet omskrivning eller lang afhandling. Jeg må også godt lave enkelt abstrakte, lyriske observationer om scenen, hvis det ellers er umuligt eller jeg ikke evner at illustrere pointen inde for reglerne. Disse markeres med kursiv. 
 
