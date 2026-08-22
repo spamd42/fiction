@@ -6,9 +6,9 @@ Undskyld, at jeg sådan belemrer Dem med min historie, men jeg kender ingen andr
 
 I går havde jeg min dejlige hankat, Gizmo, til dyrlægen for den årlige vaccination. Nu spinder han dejligt, mens vi sammen læser den lokale morgenavis. Til min store gru ser jeg, at klinikken er brændt ned, og hun, altså dyrlægen, er indlagt på intensiv. Jeg bliver bange for, at mit besøg hænger sammen med de forfærdelige hændelser. Hov, nu må De ikke misforstå. Altså, jeg er et ordentligt menneske, det er ikke mig … lad mig hellere forklare.
 
-Mandag ringede jeg til klinikken og forklarede, at Gizmo og jeg gerne ville bestille en tid til vaccination. Ja, det lyder måske lidt fjollet, men telefonpasseren virkede ungdommelig og tiltalende, da hun præsenterede sig med fornavn. Jeg følte mig 25 år yngre og i godt humør, så jeg spillede, helt undtagelsesvis, med på den nye uformelle sprogbølge. Jeg fortalte, at mit navn var Phillip, og at vi ikke havde været i klinikken før. Underligt nok fik jeg at vide, at vi allerede havde en tid: i går tirsdag klokken elleve. Svaret undrede mig, og jeg gentog, at vi ikke havde besøgt klinikken før. Det virkede, som om at telefonpasseren misforstod, hvad jeg sagde, idet hun spurgte, om jeg eventuelt ville komme tidligere. Nå, men en tid er vel en tid, så jeg tog imod tilbuddet, og vi aftalte tyve minutter over ti.
+Mandag ringede jeg til klinikken og forklarede, at Gizmo og jeg gerne ville bestille en tid til vaccination. Ja, det lyder måske lidt fjollet, men telefonpasseren virkede ungdommelig og tiltalende, da hun præsenterede sig med fornavn. Jeg følte mig 25 år yngre og i godt humør, så jeg spillede, helt undtagelsesvis, med på den nye uformelle sprogbølge. Jeg fortalte, at mit navn var Phillip, og at vi ikke havde været i klinikken før. Underligt nok fik jeg at vide, at vi allerede havde en tid: i går tirsdag klokken elleve. Svaret undrede mig, og jeg gentog, at vi ikke havde besøgt klinikken før. Det virkede som om, telefonpasseren misforstod, hvad jeg sagde, idet hun spurgte, om jeg eventuelt ville komme tidligere. Nå, men en tid er vel en tid, så jeg tog imod tilbuddet, og vi aftalte tyve minutter over ti.
 
-Jeg mødte op på klinikken fem minutter før, hvor receptionisten hilste mig velkommen. Jeg genkendte hendes stemme fra telefonen og følte mig lettere opstemt. Jeg rakte hende mit visitkort, så hun vidste, hvortil regningen skulle sendes. Det var igen, som om hun misforstod, idet hun lagde kortet i en rodebunke, mens hun fortalte, at dyrlægen var i gang med en kritisk operation på en hest. Hun tilbød mig en kop kaffe i ventetiden, som jeg glædeligt tog imod, mens jeg forsøgte med lidt hyggesnak. Altså, jeg ville fortælle, at jeg havde tid nok, da jeg havde sommerferie, men hun havde travlt med andre ting i baglokalet, eller også gad hun ikke snakke med mig – forståeligt nok.
+Jeg mødte op på klinikken fem minutter før, hvor receptionisten hilste mig velkommen. Jeg genkendte hendes stemme fra telefonen og følte mig lettere opstemt. Jeg rakte hende mit visitkort, så hun vidste, hvortil regningen skulle sendes. Det var igen som om, hun misforstod, idet hun lagde kortet i en rodebunke, mens hun fortalte, at dyrlægen var i gang med en kritisk operation på en hest. Hun tilbød mig en kop kaffe i ventetiden, som jeg glædeligt tog imod, mens jeg forsøgte med lidt hyggesnak. Altså, jeg ville fortælle, at jeg havde tid nok, da jeg havde sommerferie, men hun havde travlt med andre ting i baglokalet, eller også gad hun ikke snakke med mig – forståeligt nok.
 
 Klokken blev lidt i elleve, og en meget stresset dyrlæge tog iskoldt imod mig. Først kiggede hun ud på parkeringspladsen igennem vinduet, hvor en flot rød sportsvogn delvist dækkede for mit ydmyge køretøj. Så kastede hun et enkelt blik på Gizmo, hvorefter hun tog ham og transportkassen med ind i et andet lokale. Hun kom tilbage mindre end to minutter senere, overrakte mig katten og viste mig ud. Jeg blev helt paf og glemte helt at stille spørgsmål.
 
@@ -164,7 +164,7 @@ De ser Fruen hente store Skaale med Kartoffelsalat, der sammen med Pølser og r�
 
 Det skorter ej heller på alkoholiske Drikke. Store Mænger Øl og Rødvin konsumeres af de graadige Gæster. De observerer, at flere sniffer noget hvidt Pulver, hvilket lader til at bringe dem i en endnu bedre og højrystet Stemning.
 
-Ved ottetiden har en lille Flok vrede Villaejere, anført af Naboen paa den anden Side, samlet sig paa Vejen og raaber øjensynligt Skældsord ad Vagten, der med sindsro blot viser sin Langfinger. Det er, som om De kan læse hans Tanker: Bare vent, det bliver meget værre – *vi er slet ikke begyndt endnu.*
+Ved ottetiden har en lille Flok vrede Villaejere, anført af Naboen paa den anden Side, samlet sig paa Vejen og raaber øjensynligt Skældsord ad Vagten, der med sindsro blot viser sin Langfinger. Det er som om, De kan læse hans Tanker: Bare vent, det bliver meget værre – *vi er slet ikke begyndt endnu.*
 
 Ordensmagten ankommer klokken ti præcist, og Musikken dæmpes. Naboen fra den anden Side raaber flere Skældsord, men gaar indenfor, efter Politiet er kørt. Faa Minutter senere spiller Musikken atter for fuld Styrke. Kvart i elleve vender Ordensmagten talstærkt tilbage. Da det er blevet mørkt, tør De godt lade Bryggersdøren staa aaben. De hører adskillige Eder og Trusler. Ord, som Topskat og Afpresning, flyder sammen i et kaos af Stemmer. De hører en autoritativ Stemme beordre en underordnet Betjent til at konfiskere Sikringerne til Anlægget.
 
@@ -180,7 +180,7 @@ Natten penetreres af to højlydte Skud. Aktiviteten i Baghaven afbrydes, og De s
 
 Vagten faar en gevaldig Røffel af sin Chef for ikke at have været agtpaagivende. I et desperat Forsøg paa at komme i Kridthuset igen vælger Vagten at starte en Slaaskamp med Naboen til den anden side.
 
-Sirener lyder snart i Sommernatten, og det er, som om Orgiet og Festen endelig er forbi. Gæsterne ønsker ikke at blive impliceret i noget og forlader stille og roligt Omraadet.
+Sirener lyder snart i Sommernatten, og det virker til, at Orgiet og Festen endelig er forbi. Gæsterne ønsker ikke at blive impliceret i noget og forlader stille og roligt Omraadet.
 
 Vagten bliver anholdt, mens Chefen har en ophedet Debat med Politimesteren. De vilde gerne høre, hvad der bliver sagt, men Bryggersdøren maa forblive aflaast ind til videre. De forestiller Dem, at Ordensmagten kort afsøger Omraadet, herunder Deres laante Villa. De regner dog stærkt med, at Betjenten stiller sig tilfreds med synet af den aflaaste Laage. Bryggersdøren er bare en ekstra Foranstaltning. Nu maa De ikke fejle.
 
@@ -211,6 +211,8 @@ Titel: 1969; det anstændige menneske
 Forfatter: Allan Hansen
 
 Udgivet: 2023
+
+Korrektur: 2026
 
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 

@@ -153,7 +153,7 @@ Jeg mærker en tung sten falde fra mit hjerte. En ting er at hoppe nøgen i have
 
 Morgenbuffeten er langt mindre glamourøs end velkomsten, men smager tilfredsstillende og stiller sulten. Mens vi spiser, beder Harald om ordet for at introducere Iben, endnu en flot og attraktiv kvinde med de rette kurver og former. Hun stiller sig op på en skammel, så vi bedre kan se hende – altså hendes tæer, som naturligvis er rene og pæne som forventet.
 
-Iben fortæller kort om sit tidligere liv som afdelingssygeplejerske. Som så mange andre måtte hun skifte branche, da der ingen sygdomme er i dette efterliv. Da hun tidligere havde ansvar for euforiserende stoffer, blev hun, efter grundige overvejelser, betroet med at sanke en særlig græsart brugt til tekstiler. Græsset gror i områder med mange af de berygtede insekttuer, og Iben blev selv overrasket over, at hun ‘faldt i’ efter en uge. Hun fortæller, at det var, som om insekterne kaldte på hende.
+Iben fortæller kort om sit tidligere liv som afdelingssygeplejerske. Som så mange andre måtte hun skifte branche, da der ingen sygdomme er i dette efterliv. Da hun tidligere havde ansvar for euforiserende stoffer, blev hun, efter grundige overvejelser, betroet med at sanke en særlig græsart brugt til tekstiler. Græsset gror i områder med mange af de berygtede insekttuer, og Iben blev selv overrasket over, at hun ‘faldt i’ efter en uge. Hun fortæller, at det var som om, insekterne kaldte på hende.
 
 – Smerten er ubeskrivelig. Jeg ville hellere føde firlinger end at opleve den igen … men giftens virkning er tilsvarende potent. Langt stærkere end noget, vi har i den gamle verden – og jeg har set lidt af hvert.
 

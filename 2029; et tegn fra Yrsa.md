@@ -140,7 +140,7 @@ Endnu en ravn træder frem på den falske himmel. Den flyver lidt besværet, da 
 
 Nånå, fra den græske mytologi til den nordiske. Ja, det er godt nok nogle år siden gymnasiet og oldævl, men den maveopsprættende nevø er vist Zeus, og den enøjede med de to ravne, Odin, som ofrede sit ene øje for at drikke af visdommens brønd. De to hører jo bare ikke hjemme i samme historie.
 
-Det er, som om Yrsa zoner ud i adskillige sekunder. Jeg får tid til at reflektere over den mærkelige historie og min egen situation. Hvad er det for et tegn, hun snakker om? Hvorfor er jeg havnet her, og hvorfor pokker kører toget ikke snart?
+Det lader til, at Yrsa zoner ud i adskillige sekunder. Jeg får tid til at reflektere over den mærkelige historie og min egen situation. Hvad er det for et tegn, hun snakker om? Hvorfor er jeg havnet her, og hvorfor pokker kører toget ikke snart?
 
 – Del og hersk…
 

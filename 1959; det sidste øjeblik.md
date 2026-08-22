@@ -176,7 +176,7 @@ Det afbryder denne modbydelige tvangstanke. Det var dog grusomt, for sådan er D
 
 Har Deres realitet grænser? Er der en udvej til normaltid, som De bare skal finde? De bliver nødt til at udforske Deres verden yderligere. En god køretur vil sikkert sætte tankerne i gang.
 
-De henter bilnøglen og smadrer Volvoen igennem porten atter en gang. Instinktivt kører De mod vest, væk fra Sovjet og paddehatten. Snart er De ude af byen og triller stille og roligt på landevejen. Selv om der hverken er trafik, politi eller liv, overholder De naturligvis fartgrænsen. Efter knap tyve kilometer er det, som om luften bliver tungere og tungere. De må trykke hårdere på gaspedalen, og til sidst træder De den helt i bund for overhovedet at komme fremad.
+De henter bilnøglen og smadrer Volvoen igennem porten atter en gang. Instinktivt kører De mod vest, væk fra Sovjet og paddehatten. Snart er De ude af byen og triller stille og roligt på landevejen. Selv om der hverken er trafik, politi eller liv, overholder De naturligvis fartgrænsen. Efter knap tyve kilometer er det som om, luften bliver tungere og tungere. De må trykke hårdere på gaspedalen, og til sidst træder De den helt i bund for overhovedet at komme fremad.
 
 Den går ikke i længden. Enten er De Achillevs i væddeløb mod skildpadden, hvor De umuligt kan vinde, idet skildpadden har fået et forspring, og når De har nået skildpaddens position, har den flyttet sig længere frem. Åndssvagt paradoks. Mere realistisk er det, at bilen løber tør for benzin. De standser for at tænke.
 
@@ -226,7 +226,7 @@ I får begge brug for alle jeres kræfter og tanker op med en bid brød og kaffe
 
 Den nærmest fabriksnye Volvo holder for rødt i første række. Den kvindelige chauffør sidder med foden på gaspedalen, så det bliver en smal sag at låne \[kapre\] bilen. De giver hurtigt instrukser til hustruen, og I lægger jeres sammenbundne hænder på bilens karosseri. Deres venstre hånd åbner \[nærmest flår\] bildøren op. Herefter berører \[befamler\] De chaufførens skulder \[bryst\] blidt \[hårdt\], mens De beder om undskyld \[råber KØR\!\]. Kvinden går, som forventet, i panik og hakker sømmet i bund. Volvoen accelererer dog ikke hurtigere, end De og konen kan løbe med i et par meter. Herefter slipper De Deres tag på kvinden, men holder fast i bilen. Kvinden forsvinder og sidder nu tidsfrosset i luften et par meter tilbage. Uden hendes fod på gassen, bremser bilen selv, og De kan nu stige ind.
 
-Konen kravler først ind på førersædet, derefter over midterkonsollen til passagersiden. De følger efter. I roligt tempo \[temmelig retarderet\] kører \[ræser\] De og konen til kirken, hvor I i fællesskab “hapser” lillepigen. I har nu en god times gåtur foran jer, og De må bære Deres datter på Deres brede skuldre. Turen er uden begivenheder, men De snakker ikke rigtigt med Deres kone. Det er, som om der hænger en skygge over hele situationen – det er sikkert paddehatten.
+Konen kravler først ind på førersædet, derefter over midterkonsollen til passagersiden. De følger efter. I roligt tempo \[temmelig retarderet\] kører \[ræser\] De og konen til kirken, hvor I i fællesskab “hapser” lillepigen. I har nu en god times gåtur foran jer, og De må bære Deres datter på Deres brede skuldre. Turen er uden begivenheder, men De snakker ikke rigtigt med Deres kone. Det er som om, der hænger en skygge over hele situationen – det er sikkert paddehatten.
 
 Uden for villaen med sønnike sætter De lillepigen på jorden og taper hende sammen på Deres højre hånd med moder. Det er kun midlertidigt, men De tager ingen chancer nu.
 
@@ -242,7 +242,7 @@ Med gaspedalen i bund styrer De Volvoen sikkert mod udgangen. Lillepigen er fald
 
 De kører, indtil bilen må give fortabt og brænder sammen. Der er små tyve meter til den slørede udgang. Nu er det lige ved at ske. De er stærkere i troen end aldrig før. De løsner tapen og slipper familien fri. Deres stærke tro er nok til at binde jer sammen. På almindelig vis stiger I ud af bilen og går hen imod den slørede overgang.
 
-I stopper op og tager hinanden i hånden. Det er, som om familien er en helhed, ikke fire individer. Sammen træder I igennem udgangen og bliver mødt med fuglesang og summende insekter. De jordnære lyde lyder himmelsk i jeres ører. I har gjort det\! Prøven er bestået. 
+I stopper op og tager hinanden i hånden. Det virker til, at familien er en helhed, ikke fire individer. Sammen træder I igennem udgangen og bliver mødt med fuglesang og summende insekter. De jordnære lyde lyder himmelsk i jeres ører. I har gjort det\! Prøven er bestået. 
 
 I vender jer om. Gennemgangen til den tidsfrosne realitet er forsvundet.
 

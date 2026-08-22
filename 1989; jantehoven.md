@@ -118,7 +118,7 @@ Ib smiler, da Annelise har bidt på krogen. Han fortsætter: “Og så den lille
 
 Da Annelise ser eftertænksom ud, ser Jesper sit snit til at kommentere, at det ikke lyder særlig kvikt, men inden han får sagt ordene, husker han pludselig den fremragende film. I stedet byder han ind med: “Måske har han set Indiana Jones stave Guds navn IEHOVA for at finde den hellige gral—” Jesper afbryder sig selv for sent, da han pludselig husker, at filmen jo er helt ny. Ibs tredjeklasse har sikkert lært alfabetet for to år siden. Heldigvis, for Jesper, har ingen gennemskuet hans tanketorsk.
 
-Annelise har slet ikke hørt efter og svarer Ib med: “Måske har han en forælder, som er glad for krydsogtværser. Den fik du vel lukket ned med det samme?” Det er, som om en kold vind blæser igennem lærerværelset, og Annelise undskylder straks: “Ja, det lyder helt tosset med ‘forælder’, men når det nu er kommet i Retskrivningsordbogen, må vi vel hellere vise vejen og bruge det – eller hvad tænker I?”
+Annelise har slet ikke hørt efter og svarer Ib med: “Måske har han en forælder, som er glad for krydsogtværser. Den fik du vel lukket ned med det samme?” Det er som om, en kold vind blæser igennem lærerværelset, og Annelise undskylder straks: “Ja, det lyder helt tosset med ‘forælder’, men når det nu er kommet i Retskrivningsordbogen, må vi vel hellere vise vejen og bruge det – eller hvad tænker I?”
 
 “Jeg skriver stadig linie med ie,” svarer Ib, mens de andre lærere ved bordet nikker, dog uden at indikere, hvem de er enige med. Ib fryder sig ved sammenholdet. Selvfølgelig er det kun dansklærere, som bør have en holdning til retstavning og sprogbrug.
 

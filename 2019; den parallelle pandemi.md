@@ -212,7 +212,7 @@ Lysglimt.
    Du er tilbage i den frosne fliseørken.  
       Solen smelter hurtigt rimfrosten, og vejret bliver dejligt varmt.
 
-Du vandrer mod det største bjerg, og det er, som om du tager meget lange skridt. Snart er du ved foden og kikker på et skilt, der sandsynligvis viser navnet og højden på bjerget. Du prøver at studere skiltet nærmere, men teksten er ulæselig, dækket af alger og snavs. Lige meget, du ser en flisebelagt trappesti og begynder at bestige bjerget.
+Du vandrer mod det største bjerg, og det er som om, du tager meget lange skridt. Snart er du ved foden og kikker på et skilt, der sandsynligvis viser navnet og højden på bjerget. Du prøver at studere skiltet nærmere, men teksten er ulæselig, dækket af alger og snavs. Lige meget, du ser en flisebelagt trappesti og begynder at bestige bjerget.
 
 Snart er du på toppen, og det er ikke bare et bjerg, men en aktiv vulkan. Du følger trappen ned i krateret, hvor lavaen bobler lystigt. Det bliver varmere, og snart er heden ulidelig. Du fortsætter og bliver ét med lavaen. Lysglimt.
 
