@@ -70,7 +70,7 @@ Yrsa kunne åbenbart læse mine tanker, for hun afbrød med:
 
 Yrsa begynder at irritere mig. Jeg føler mig dybt provokeret, ligesom når Jehovas Vidner ringer på min dør og vil pådutte mig deres ulidelige verdenssyn. Uden at tænke for meget hører jeg mig selv sige: “Hmmm og jorden blev skabt på syv dage.”
 
-– Ej nej, helt forkert\! Tid og tyngdekraft hænger jo sammen, det ved du vel godt? Eller har I seriøst ikke fattet relativitetsteorien endnu? Du kan slet ikke definere længden på en dag uden planetens masse. Det er jo helt elementært\!
+– Ej nej, helt forkert\! Tid og tyngdekraft hænger jo sammen, det ved du vel godt? Eller har I seriøst ikke fattet relativitetsteorien endnu? Du kan slet ikke definere længden på en dag uden planetens rotation. Det er jo helt elementært\!
 
 Jeg smiler skævt og svarer: “*Ja, nu er jeg ingen Einstein, men så meget har jeg da forstået.”* Sarkasmen hænger tykt i luften, men Yrsa reagerer ikke, som om hun ikke kan relatere til, hvad jeg siger.
 
