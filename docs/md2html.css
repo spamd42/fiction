@@ -1,0 +1,178 @@
+
+:root {
+	color-scheme: light dark;
+	--bg: #ffffff;
+	--text: #253047;
+	--muted: #5f6c80;
+	--metadata-text: #808790;
+	--accent: #185abc;
+	--border: #dce2eb;
+	--panel: #f5f7fb;
+}
+
+@media (prefers-color-scheme: dark) {
+	:root {
+		--bg: #111827;
+		--text: #e6edf7;
+		--muted: #b0bdcf;
+		--metadata-text: #8993a2;
+		--accent: #8bb9ff;
+		--border: #354158;
+		--panel: #1c2739;
+	}
+}
+
+* {
+	box-sizing: border-box;
+}
+
+body {
+	max-width: 54rem;
+	margin: 0 auto;
+	padding: 3rem 1.75rem 5rem;
+	background: var(--bg);
+	color: var(--text);
+	font-family: Georgia, Cambria, "Times New Roman", "Liberation Serif", serif;
+	font-size: 1rem;
+	line-height: 1.75;
+	overflow-wrap: break-word;
+}
+
+h1, h2, h3, h4, h5, h6 {
+	line-height: 1.3;
+	margin: 2.5rem 0 0.75rem;
+}
+
+h1 {
+	font-size: 2.2rem;
+	border-bottom: thin solid var(--border);
+	padding-bottom: 0.65rem;
+}
+h1:first-child {
+	margin-top: 0;
+}
+
+h2 {
+	font-size: 1.65rem;
+	border-bottom: thin solid var(--border);
+	padding-bottom: 0.35rem;
+}
+
+h3 {
+	font-size: 1.25rem;
+}
+
+h4, h5, h6 {
+	font-size: 1.1rem;
+}
+
+p, ul, ol, blockquote, pre, table {
+	font-size: 1.1rem;
+	margin: 1rem 0 1.3rem;
+}
+
+a {
+	color: var(--accent);
+	text-underline-offset: 0.125rem;
+}
+
+a:hover {
+	text-decoration-thickness: 0.125rem;
+}
+small, figcaption {
+	color: var(--muted);
+}
+img {
+	max-width: 100%; 
+	height: auto;
+}
+
+hr {
+	border: 0;
+	border-top: thin solid var(--border);
+	margin: 2rem 0;
+}
+
+blockquote {
+	border-left: 0.25rem solid var(--accent);
+	background: var(--panel);
+	padding: 0.3rem 1rem;
+	margin-left: 0;
+	margin-right: 0;
+}
+
+code, pre {
+	font-family: ui-monospace, "Cascadia Code", Consolas, monospace;
+	font-size: 0.92rem;
+}
+
+code {
+	background: var(--panel);
+	border-radius: 0.25rem;
+	padding: 0.15rem 0.3rem;
+}
+
+pre {
+	padding: 1rem 1.2rem;
+	overflow-x: auto;
+	background: var(--panel);
+	border: thin solid var(--border);
+	border-radius: 0.5rem;
+}
+
+pre code {
+	padding: 0;
+	background: transparent;
+}
+
+table {
+	display: block;
+	width: 100%;
+	border-collapse: collapse;
+	overflow-x: auto;
+}
+
+th, td {
+	border: thin solid var(--border);
+	padding: 0.55rem 0.8rem;
+	text-align: left;
+}
+
+th, tr:nth-child(even) {
+	background: var(--panel);
+}
+
+@media (max-width: 37.5rem) {
+  body { padding: 1.5rem 1rem 3rem; }
+  h1 { font-size: 1.8rem; }
+  h2 { font-size: 1.45rem; }
+}
+
+@media print {
+  :root { color-scheme: light; }
+  body {
+	max-width: none;
+	padding: 0;
+	background: #ffffff;
+	color: #000000;
+  }
+  a { color: inherit; }
+  pre, blockquote { break-inside: avoid; }
+}
+
+/* kapitelskift/sceneadskillelse: kun en paragraf med tegnet ◈. */
+.scene-break > p {
+  text-align: center;
+}
+
+/* Fra METADATA-overskriften til slutningen af dokumentet. */
+h2#metadata,
+h2#metadata ~ * {
+	color: var(--metadata-text);
+}
+h2#metadata {
+	border-bottom-color: var(--metadata-text);
+}
+h2#metadata ~ * a {
+	color: inherit;
+}
