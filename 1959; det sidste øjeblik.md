@@ -52,7 +52,7 @@ Forvirret går De hen til en anden rose, som De husker at have lugtet til tidlig
 
 Misfornøjet erkender De nederlag og trækker i stedet blomsten væk fra bien, så De kan dufte til den. Rosen dufter vidunderligt – ligesom i morges. De får en idé og går tilbage til den første rose. Her stikker De næsen helt ned i blomsten, men intet sker, ingen duft. De rører ved blomsten, som pludselig bliver aktiv med den herligste duft, De kan forestille Dem. De begynder at se et mønster.
 
-Nu bemærker De en solsort svæve knap en meter over græsplænen. De går systematisk til værks for at udforske Deres muligheder. De erfarer hurtigt, at enhver berøring med fingre, hænder eller håndled giver liv til fuglen, som så flyver videre, forsvinder og vender tilbage frosset i tid og sted. De tager skoene af og bemærker, at Deres fødder og tæer ikke har samme evner, dog kan De skubbe til fuglen, og den forbliver i den nye position, så længe Deres fødder er i umiddelbar nærhed. De tager stikprøver med resten af Deres krop, og De opdager, at De kan skubbe og fastholde med alle legemsdele.
+Nu bemærker De en solsort svæve knap en meter over græsplænen. De går systematisk til værks for at udforske Deres muligheder. De erfarer hurtigt, at enhver berøring med fingre, hænder eller håndled giver liv til fuglen, som så flyver videre, forsvinder og vender tilbage frosset i tid og sted. De tager skoene af og bemærker, at Deres fødder og tæer ikke har samme evner, dog kan de skubbe til fuglen, og den forbliver i den nye position, så længe Deres fødder er i umiddelbar nærhed. De tager stikprøver med resten af Deres krop, og De opdager, at De kan skubbe og fastholde med alle legemsdele.
 
 Nu er det vist lige på tide at ryge den sidste cigaret, men hov, der er jo to tilbage. De husker tydeligt, at De røg den næstsidste. De forundres og tager begge cigaretter i munden. Pakken kaster De bort, og den forsvinder som forudset. Et eller andet sted forventer De at kunne fiske pakken ud af lommen med to cigaretter tilbage, men her tager De fejl: den er væk.
 
@@ -84,7 +84,7 @@ De opgiver. I køleskabet finder De et stykke ost og noget pølse, som De indtag
 
 De finder sønnike i andet forsøg. Hans cykel står parkeret udenfor, så De er ikke i tvivl om, at De har fundet rette sted. Drengen lader til at kede sig og står alene. De ser det som en umiddelbar fordel, da det vil være nemmere at få ham med. De tænker ikke og begår en fejl ved at stille Dem foran ham og lægge Deres hånd på hans skulder. Inden De når at hilse, går drengen i panik og river sig løs skrigende.
 
-Nu tænker De Dem grundigt om. Hvordan ville De selv have det som barn, hvis der pludselig stod en oprejst voksen mand foran Dem og befamlede Deres skulder? De går på hug, så De er i øjenhøjde og prøver igen. De fornemmer, at drengen bliver mindre panisk, men han formår stadig at rive sig løs. De tænker et par år tilbage, dengang han var betydelig lettere. Har De stadig kræfter til at løfte ham? De beslutter Dem for at prøve og går bagom drengen. De går ned i knæ og løfter ham med den ene arm i haserne. Med den anden arm støtter De hans ryg, og idet De løfter, siger De “haps”.
+Nu tænker De Dem grundigt om. Hvordan ville De selv have det som barn, hvis der pludselig stod en oprejst voksen mand foran Dem og befamlede Deres skulder? De går på hug, så De er i øjenhøjde og prøver igen. De fornemmer, at drengen bliver mindre panisk, men han formår stadig at rive sig løs. De tænker et par år tilbage, dengang han var betydeligt lettere. Har De stadig kræfter til at løfte ham? De beslutter Dem for at prøve og går bagom drengen. De går ned i knæ og løfter ham med den ene arm i haserne. Med den anden arm støtter De hans ryg, og idet De løfter, siger De “haps”.
 
 Sønnike er helt rolig og husker ikke paniktilstanden for kort tid siden. De må nu udsætte ham for en røverhistorie: at hele verden leger stilleleg, og at I skal finde moder. Heldigvis husker drengen, hvilken kirke, men er ikke meget for at efterlade cyklen eller holde fader i hånd.
 
@@ -108,7 +108,7 @@ Kirken er fyldt med mennesker, der lytter til en eller anden koncert. De bryder 
 
 De registrerer straks, at alle stole er optaget, og at flere af gæsterne står op. De går rundt om stoleområdet, men kan ikke se Deres kone. Lyset er imidlertid dårligt, og De er en smule nærsynet, så de inderste pladser står ikke tydeligt i fokus for Dem. Dog kan De ikke se en kvinde med barn blandt de slørede ansigter.
 
-De har ingen anelse, om hvad konen laver til denne koncert. Er hun deltager, synger hun i koret, eller hjælper hun bare til med det praktiske? De skammer Dem lidt. De burde interessere Dem mere for hendes hverdag. De lover Dem selv at gøre det bedre i fremtiden, såfremt en sådan eksisterer.
+De har ingen anelse om, hvad konen laver til denne koncert. Er hun deltager, synger hun i koret, eller hjælper hun bare til med det praktiske? De skammer Dem lidt. De burde interessere Dem mere for hendes hverdag. De lover Dem selv at gøre det bedre i fremtiden, såfremt en sådan eksisterer.
 
 De tager trappen og gennemsøger koret, orglet, selv kirketårnet. De skammer Dem: hvad skulle hun dog lave i tårnet? Hun er jo ikke stærk nok til at ringe med de tunge klokker. Hvorfor føler De Dem lettet? De havde vel ikke forventet at finde hende med en fremmed mandsperson deroppe?
 
@@ -172,7 +172,7 @@ De kan tage den nemme vej. Lægge Dem i sengen og falde i søvn uden at gøre en
 
 De kunne også vælge at drikke Dem fra sans og samling. Over for Sankt Peter kunne De så argumentere, at denne realitet ikke er det rigtige liv, så de normale regler burde ikke være i spil. Da alt vender tilbage til den tidsfrosne tilstand, kunne De stramme buen yderligere og ligefrem begå diverse vederstyggeligheder. Selv hvis De begår massemord, ville blodet og alle andre vidnesbyrd forsvinde, så snart ugerningen er overstået. De kan ligefrem argumentere for, at ofrene ikke tager skade–
 
-Det afbryder denne modbydelige tvangstanke. Det var dog grusomt, for sådan er De bestemt ikke. De er og har altid været et godt menneske, et lysende eksempel for andre at følge. I hvert fald i Deres egne øjne.
+De afbryder denne modbydelige tvangstanke. Det var dog grusomt, for sådan er De bestemt ikke. De er og har altid været et godt menneske, et lysende eksempel for andre at følge. I hvert fald i Deres egne øjne.
 
 Har Deres realitet grænser? Er der en udvej til normaltid, som De bare skal finde? De bliver nødt til at udforske Deres verden yderligere. En god køretur vil sikkert sætte tankerne i gang.
 
@@ -196,7 +196,7 @@ På dametoilettet ignorerer De lillepigen og sætter Dem på kørestolen foran t
 
 Er De klar til at overskride alle grænser nu? De undskylder over for konen, som naturligvis ikke kan høre Dem. De begynder at græde og gennemtænker situationen en ekstra gang. Nej, dette er den eneste vej, som De har formået at udtænke. Fra Deres bukselomme frembringer De et lommetørklæde, som De gennemvæder med kloroform. Med ualmindeligt dårlig samvittighed fører De med den ene hånd tørklædet til konens næse og tager fat i hende med den anden. Hun hoster kortvarigt, men går ud som et lys.
 
-Uden at slippe hverken dør, hustru eller kørestol, rejser De Dem. Med møje og besvær får De bugseret konen over i stolen. De sveder som et svin, men lader det ikke gå Dem på. Nu ruller De hende ud af toilettet. Lillepigen må De desværre efterlade for nu. Trappen forcerer De uden vanskeligheder, i hvert fald intet i sammenligning med netop overståede bugsering.
+Uden at slippe hverken dør, hustru eller kørestol, rejser De Dem. Med møje og besvær får De bugseret konen over i stolen. De sveder som et svin, men lader det ikke gå Dem på. Nu ruller De hende ud af toilettet. Lillepigen må De desværre efterlade for nu. Trappen forcerer De uden vanskeligheder, i hvert fald intet i sammenligning med den netop overståede bugsering.
 
 Med fornyet energi ruller De i rask fart konen hjem. Deres tidskoordinering er nærmest perfekt, idet hun så småt begynder at vågne, så snart De lægger hende i den vante seng. De binder Deres ene hånd til hendes med et tørklæde, som De finder på hendes natbord. En øjeblikkelig undskyldning efterfulgt af en længere forklaring og en demonstration af denne realitet er nu på sin plads.
 
@@ -224,7 +224,7 @@ Nu skal der handles. De kører for sidste gang Deres egen vogn igennem porten og
 
 I får begge brug for alle jeres kræfter og tanker op med en bid brød og kaffe. Aldrig har De nydt et så velsmagende måltid. Det må ikke blive Deres sidste. I takker begge de tidsfrosne naboer og går en lille kilometer hen imod den vogn, De nu skal låne \[stjæle\].
 
-Den nærmest fabriksnye Volvo holder for rødt i første række. Den kvindelige chauffør sidder med foden på gaspedalen, så det bliver en smal sag at låne \[kapre\] bilen. De giver hurtigt instrukser til hustruen, og I lægger jeres sammenbundne hænder på bilens karosseri. Deres venstre hånd åbner \[nærmest flår\] bildøren op. Herefter berører \[befamler\] De chaufførens skulder \[bryst\] blidt \[hårdt\], mens De beder om undskyld \[råber KØR\!\]. Kvinden går, som forventet, i panik og hakker sømmet i bund. Volvoen accelererer dog ikke hurtigere, end De og konen kan løbe med i et par meter. Herefter slipper De Deres tag på kvinden, men holder fast i bilen. Kvinden forsvinder og sidder nu tidsfrosset i luften et par meter tilbage. Uden hendes fod på gassen, bremser bilen selv, og De kan nu stige ind.
+Den nærmest fabriksnye Volvo holder for rødt i første række. Den kvindelige chauffør sidder med foden på gaspedalen, så det bliver en smal sag at låne \[kapre\] bilen. De giver hurtigt instrukser til hustruen, og I lægger jeres sammenbundne hænder på bilens karosseri. Deres venstre hånd åbner \[nærmest flår\] bildøren op. Herefter berører \[befamler\] De chaufførens skulder \[bryst\] blidt \[hårdt\], mens De beder om undskyld \[råber KØR\!\]. Kvinden går, som forventet, i panik og hakker sømmet i bund. Volvoen accelererer dog ikke hurtigere, end De og konen kan løbe med i et par meter. Herefter slipper De Deres tag på kvinden, men holder fast i bilen. Kvinden forsvinder og sidder nu tidsfrosset i luften et par meter tilbage. Uden hendes fod på gassen bremser bilen selv, og De kan nu stige ind.
 
 Konen kravler først ind på førersædet, derefter over midterkonsollen til passagersiden. De følger efter. I roligt tempo \[temmelig retarderet\] kører \[ræser\] De og konen til kirken, hvor I i fællesskab “hapser” lillepigen. I har nu en god times gåtur foran jer, og De må bære Deres datter på Deres brede skuldre. Turen er uden begivenheder, men De snakker ikke rigtigt med Deres kone. Det er som om, der hænger en skygge over hele situationen – det er sikkert paddehatten.
 
