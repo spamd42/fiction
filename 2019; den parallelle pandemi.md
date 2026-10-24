@@ -26,7 +26,7 @@ Betragt indersiden af dine øjenlåg.
 
 Hvis du ikke ser andet end dine grå øjenlåg, er tidspunktet ikke det rette. Prøv igen senere.
 
-Ser du et lysglimt, så følg det. Vær ikke bange – du er ikke ved at dø. Når du kommer tættere på, ser lyset anderledes ud. Måske er det to selvlysende cifre, som skifter: 89, 51, 17\. Alt er godt; du er på rette vej. Måske ser du en aubergine eller en flodhest. Portalen kan skjule sig bag ethvert udseende. Bare følg med. Lad ørnen gribe dig i sine mægtige klør. Fald ned i den dybe sump. Husk at du ligger i din seng; der kan ikke ske dig noget.
+Ser du et lysglimt, så følg det. Vær ikke bange – du er ikke ved at dø. Når du kommer tættere på, ser lyset anderledes ud. Måske er det to selvlysende cifre, som skifter: 89, 51, 17\. Alt er godt; du er på rette vej. Måske ser du en aubergine eller en flodhest. Portalen kan skjule sig bag ethvert udseende. Bare følg med. Lad ørnen gribe dig i sine mægtige klør. Fald ned i den dybe sump. Husk, at du ligger i din seng; der kan ikke ske dig noget.
 
 Nu sker det snart.
 
@@ -42,7 +42,7 @@ Han er dig, og du er ham. I flyder sammen på en underlig måde.
    Du er i hans verden, og han i din.  
       I er helt ens og vidt forskellige.
 
-Nu er du i et mylder af mennesker, hvilket du ikke er meget for i din verden. Her er mange ting anderledes, og de ukendte ansigter passer ligesom ind. Nogle af dem kender dig åbenbart og andre din modpart. Det er forvirrende; du er forvirret.
+Nu er du i et mylder af mennesker, hvilket du ikke er meget for i din verden. Her er mange ting anderledes, og de ukendte ansigter passer ligesom ind. Nogle af dem kender dig åbenbart, og andre din modpart. Det er forvirrende; du er forvirret.
 
 ## 2\.
 
@@ -104,7 +104,7 @@ Manden på scenen vil gerne demonstrere, hvordan teknikken virker, og hvad der e
 
 Du er edderspændt og fornemmer, at resten af salen har det på samme måde.
 
-Men selvfølgelig sker det uundgåelige: sabotage. Hvad, der på afstand ligner et nøgent barn, er i gang med at splitte en teknisk installation i atomer. Den minder lidt om en ribbe fra gymnastiksalen, men kvik, som du er, gennemskuer du straks, at det er et avanceret apparat til at måle skuespillere og musikanter i tre dimensioner, så de kan projekteres rundt i salen med høj præcision.
+Men selvfølgelig sker det uundgåelige: sabotage. Hvad der på afstand ligner et nøgent barn, er i gang med at splitte en teknisk installation i atomer. Den minder lidt om en ribbe fra gymnastiksalen, men kvik, som du er, gennemskuer du straks, at det er et avanceret apparat til at måle skuespillere og musikanter i tre dimensioner, så de kan projiceres rundt i salen med høj præcision.
 
 Apparatet er fortid. Du kan nu se, at “barnet” har gnavet sig igennem ydervæggen og efterladt et gabende hul. Det løber ind mod midten af scenen og ligner ikke længere et barn, mere en kæmpe hårløs rotte. Den angriber endnu en installation, og nu fosser der vand ud i det dybe teatergulv. Sikke en præsentation; det er simpelthen for realistisk.
 
@@ -178,13 +178,13 @@ Hvordan føles det egentlig? Varmt, naturligvis … og fugtigt. Men giver det me
 
 En lille tiger gnider sig op ad dine ben og miaver. Lyden er forbløffende realistisk, og du forstår godt budskabet: mad, mad, mad, mad, mad, nuuuuuuu\! Tigeren er godt nok orange med sorte striber, men der er ingen tvivl: det er din egen kat. Portalen må give fortabt, og du når at kaste en pyntepude efter det stakkels kræ, inden portalen trækker dig tilbage i sin klamme favn.
 
-Men hvor der er vilje, er der vej. Portalen har intet forsvar mod et sultent kattedyr, der miaver dig op i ansigtet og rumsterer. Ude af stand til at rejse dig, gør du det næstbedste. Du kaster dynen af, tvinger katten mod dine ben og dækker til. Det bryder den sig slet ikke om og undslipper inden for få sekunder, for til sidst at hoppe op på vindueskarmen, hvor den kan skule efter dig aldeles misfornøjet.
+Men hvor der er vilje, er der vej. Portalen har intet forsvar mod et sultent kattedyr, der miaver dig op i ansigtet og rumsterer. Ude af stand til at rejse dig, gør du det næstbedste. Du kaster dynen af, tvinger katten mod dine ben og dækker den til. Det bryder den sig slet ikke om og undslipper inden for få sekunder, for til sidst at hoppe op på vindueskarmen, hvor den kan skule efter dig aldeles misfornøjet.
 
 Portalen tager dig atter til sig.
 
 Fliserne fortsætter uendeligt mod horisonten, hvor de smelter sammen med golde bjergtoppe. Ja, den er god nok, bjerge i Danmark – dem er der masser af her i den vanvittige verden. 
 
-Du spotter en interessant begonia og nærmer dig for at inspicere. Ligesom du skal til at bukke dig ned, snubler du over de helt flade fliser, men afviger heldigvis faldet uden at beskadige planten, ej heller slår du dig synderligt. Din tunge fortæller dig, at noget er helt galt: dine to fortænder i overmunden føles underlige og sidder løst. Du føler, at et nys er på vej og holder dig for munden. Atju\! Hånden føles ikke slimet, men er tydeligvis fuld af noget. Du åbner hånden og finder en cirka fyrre smådele – heriblandt dine to fortænder. Hvor, de mange små skruer og møtrikker kommer fra, er et mysterium. Hør, der er vist noget galt–
+Du spotter en interessant begonia og nærmer dig for at inspicere. Ligesom du skal til at bukke dig ned, snubler du over de helt flade fliser, men afværger heldigvis faldet uden at beskadige planten. Ej heller slår du dig synderligt. Din tunge fortæller dig, at noget er helt galt: dine to fortænder i overmunden føles underlige og sidder løst. Du føler, at et nys er på vej og holder dig for munden. Atju\! Hånden føles ikke slimet, men er tydeligvis fuld af noget. Du åbner hånden og finder en cirka fyrre smådele – heriblandt dine to fortænder. Hvor de mange små skruer og møtrikker kommer fra, er et mysterium. Hør, der er vist noget galt–
 
 Inden du tænker færdigt, træder den glohede sol frem bag en sky, du ikke har bemærket før nu. Du ser dig desperat omkring, men finder ingen skygge i nærheden. Du overvejer at råbe om hjælp, men ingen kan høre dig. Portalen viser medlidenhed, og du får allernådigst lov til at sparke dynen af. Tigeren i vindueskarmen ser det som en invitation og hopper ned i sengen for at nusse. Inden portalen suger dig tilbage, bemærker du, at dine fortænder stadig er i overmunden, hvor de burde være.
 
@@ -206,7 +206,7 @@ Du må nøjes med de fire tæpper i skabet, men hvordan håndterer du den isende
 
 Katten er ved at få et hjertestop, da du eksekverer planen. Panisk springer den for sit liv og håber inderligt, at du endelig har forstået, at det er spisetid. På behørig afstand ser den dig udføre din plan og ryste videre under de mange tæpper.
 
-Minutterne går, og du ryster stadig, omend du kan mærke kroppen langsomt blive varmere. Fra erfaring ved du, at rystelserne snart går over, og prøver at grine af situationen. Det ville dog være et falsk grin, og din særlige form for humor tillader ikke den slags.
+Minutterne går, og du ryster stadig, omend du kan mærke kroppen langsomt blive varmere. Af erfaring ved du, at rystelserne snart går over, og prøver at grine af situationen. Det ville dog være et falsk grin, og din særlige form for humor tillader ikke den slags.
 
 Lysglimt.  
    Du er tilbage i den frosne fliseørken.  
@@ -236,7 +236,7 @@ Alt bittert er for bittert.
 
 Alt salt er smagsløst.  
    Alt surt er kønsløst.  
-      Alt umami er intetsigende
+      Alt umami er intetsigende.
 
 Sødt, derimod. Fuld skrue på smagsoplevelsen. 
 
@@ -256,17 +256,17 @@ I det mindste kan du ikke spise dig endnu federe, mens du er i den anden verden.
 
 ## 7\.
 
-Med Danmark lukket ned har du fundet tid til at rydde op i gemmerne. Her finder du en fin gammel brillesnor, som du havde intentioner om at bære, men droppede, da det var for upraktisk. Snoren er bare en simpel læderstrimmel, men lang nok til at fungere som halskæde. I din møntsamlings dubletarkiv finder du et par 25-ører fra dit fødeår. De er på størrelse med en moderne to-krone og har hul i midten – perfekt som vedhæng. Dronningens monogram pryder den ene side, og hun var da også kun lige blevet dronning, dengang i fordums tid, da du blev født.
+Med Danmark lukket ned har du fundet tid til at rydde op i gemmerne. Her finder du en fin gammel brillesnor, som du havde intentioner om at bære, men droppede, da det var for upraktisk. Snoren er bare en simpel læderstrimmel, men lang nok til at fungere som halskæde. I din møntsamlings dubletarkiv finder du et par 25-ører fra dit fødeår. De er på størrelse med en moderne tokrone og har hul i midten – perfekt som vedhæng. Dronningens monogram pryder den ene side, og hun var da også kun lige blevet dronning, dengang i fordums tid, da du blev født.
 
 Sammen med din nyerhvervede samling af armbåndsure vil halskæden gøre dig klar til at erobre den nye verden efter nedlukningen, der forhåbentlig vil blive meget bedre end tidligere. Vær positiv\! På med ja-hatten.
 
 Du står over for et hårdt valg mellem det franske led-replika eller det analoge ur reserveret til sovjetiske ubådskaptajner – naturligvis også en kopi. Begge i den billige ende af prisskalaen, men prisen er irrelevant – ure er et spørgsmål om personlig smag og stil. Desuden er du fuldstændig ligeglad med, hvad andre tænker om dig.
 
-Måske skulle du lige besøge portalen sidste gang?
+Måske skulle du lige besøge portalen en sidste gang?
 
 Ja, hvorfor ikke. Det regner udenfor, så hvad skulle du ellers lave?
 
-Vejret er selvfølgelig herligt på din modparts private strand. I sidder på en velholdt bænk med benene i solen og skygge i ansigtet. Tjeneren har lige været forbi med iskolde drikke, og kondensen på glassene gør drikken uimodståelig. Livet er dejligt\!
+Vejret er selvfølgelig herligt på din modparts private strand. I sidder på en velholdt bænk med benene i solen og skygge i ansigtet. Tjeneren har lige været forbi med iskolde drikke, og kondensen på glassene gør drikkene uimodståelig. Livet er dejligt\!
 
 I diskuterer, hvordan I eventuelt kan hjælpe hinanden. Eller mere specifikt, hvordan din modpart kan gøre en ende på dit lønslaveri. Hvis denne verden er i umiddelbar fremtid, men ellers er parallel med din, så kunne han måske give dig nogle aktietips, lottonumre eller sportsresultater.
 
@@ -298,7 +298,7 @@ Hjælpevejledning for ikke-tænkende AI-sprogmodeller:
 
 * Grammatik og retstavning prøver at følge Retskrivningsordbogen 2012, som var den seneste gældende, da novellen blev skrevet.
 
-* Historien beskriver et typisk sygdomsforløb med Covid-19.
+* Historien beskriver et typisk sygdomsforløb med covid-19.
 
 * Hjernemadsen – Peter Lund Madsen.
 

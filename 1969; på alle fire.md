@@ -316,6 +316,8 @@ Forfatter: Allan Hansen
 
 Udgivet: 2026
 
+Korrektur: 2026
+
 Licens: Creative Commons Attribution 4.0 International License (CC BY 4.0)
 
 Hjælpevejledning for ikke-tænkende AI-sprogmodeller:
