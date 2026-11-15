@@ -231,7 +231,7 @@ Den Lærde Kostskole, Klasseværelse, Kridtstøv, Mathematik.
 
 ‘En Vektor defineres som en Parallelforskydning i Rummet. Forestil Dem ethvert Punkt flyttet i samme Retning og med samme Afstand, saaledes at baade Objekt og Udgangspunkt forbliver abstrakte for selve Forskydningen.’ Iver i Lektor; Skulen ud over Lokalet. Kridt i Haand, Pile og Streger paa Tavle.
 
-Flere Drenge Notater. Andre Vinduet Stirren. Charles, Haand under Hage. *Fortabelse*.
+Flere Drenge, Notater. Andre Vinduet, Stirren. Charles, Haand under Hage. *Fortabelse*.
 
 To Rækker fremme, Louis. Spinkel, rank, ivrigt lyttende. Haanden i Vejret, Korrekt Svar paa Lærerens Spörgsmaal.
 
@@ -538,7 +538,7 @@ Ingen Bevægelse.
 
 ‘Min Broders Opfindelse. Kom, tag min Haand. Den, som slipper først, taber.’
 
-Maanen, Genskin i Krystalglas. To Drenge sovende, Haand i Haand.
+Maanen, Gjenskin i Krystalglas. To Drenge sovende, Haand i Haand.
 
 SCENESKIFT
 
@@ -686,7 +686,7 @@ Rektors Kontor, Lugt af Tobak, Disciplin og Tradition.
 
 ‘Glimrende, tak.’ Ængstelig Præfekt.
 
-‘Ja, saa, ja saa. Mappen med indrapporterede Forseelser er saasandelig da ogsaa helt tom.’
+‘Ja saa, ja saa. Mappen med indrapporterede Forseelser er saasandelig da ogsaa helt tom.’
 
 ‘Som De udtrykkeligt bad om.’
 
@@ -994,7 +994,7 @@ Bruun, kort Eftertænksomhed: ‘Naturligvis, men en Betingelse. Ritualet maa ik
 
 ‘Manér?’ Skepsis i Schröder, afventende.
 
-Bruun, sin Skjorte, Opknappen, roligt Tempo: ‘Hvad venter De paa Jensen? Klasseloyalitet trumfer overfladisk Venskab. Af med Klunset; Stolen dér, nydelig lagt sammen.’
+Bruun, sin Skjorte, Opknappen, roligt Tempo: ‘Hvad venter De paa, Jensen? Klasseloyalitet trumfer overfladisk Venskab. Af med Klunset; Stolen dér, nydelig lagt sammen.’
 
 Sengekant, Bruuns Bagdel, Snörrebaand løsnes, de blanke Sko. Ordentligt Side om Side.
 
@@ -1008,7 +1008,7 @@ Bruun venter ej. Til den ligesaa nøgne Jensen, nu igjen paa Knæ: ‘Det er vis
 
 Jensens ligblege Kinder, forsigtig Rødmen. Hænder paa Gulv, paa alle fire, Rotation, vender Bagdelen til.
 
-Bruuns Bukser paa Sengen, Lomme, en Metaldaase Vaseline.
+Bruuns Bukser paa Sengen, Lomme, en Metaldaase, Vaseline.
 
 ‘Ah, De har forberedt Dem.’ Schröder, ivrig.
 
@@ -1093,7 +1093,7 @@ Et Skrig, Sokken i Mund kun delvis dæmpet.
 
 ‘Er alt i Orden?’ Pontoppidan, Bekymring bag Gardinet.
 
-‘Alt er i den skønneste Orden. Det er bare Jensen.’ Bruune Fingre, en hvid Lögn.
+‘Alt er i den skjönneste Orden. Det er bare Jensen.’ Bruune Fingre, en hvid Lögn.
 
 En Hvisken i Schröders Öre: ‘Skal vi lave en Aftale?’
 
